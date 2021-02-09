@@ -9,7 +9,7 @@ name: Will Stalcup
 description: A blog of critical importance.
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
-avatar: images/jakedog.jpg
+avatar: {{ site.baseurl }}images/jakedog.jpg
 #
 # Flags below are optional
 #
