@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+I am the author of this blog.
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+My name is Will. I teach English in Japan.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[wstalcup@gmail.com](mailto:wstalcup@gmail.com)
