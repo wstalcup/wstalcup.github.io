@@ -53,3 +53,9 @@ Over a long moment, the Magus saw years of friendship warring with duty on the G
 Without another word, the general turned and leapt off the balcony. The Magus felt shame that he had put his old friend in such a position, but he did not regret. His research was necessary for progress, to bring about a revolution. He had failed to achieve such heights, but perhaps off the back of his research, something great would be achieved.
 
 He didn’t flinch when the assault of fire and lightning restarted and his defenses began to crumble. He didn’t flinch as he felt each impact rippling off the stone, sending tremors of pain down his skin. He didn’t even flinch when a ball of plasma, thrown by the general himself, tore a hole through his chest.
+
+Next Chapter
+
+[Table of Contents](/novel/)
+
+Previous Chapter
