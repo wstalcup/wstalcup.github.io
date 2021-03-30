@@ -54,6 +54,8 @@ Without another word, the general turned and leapt off the balcony. The Magus fe
 
 He didn’t flinch when the assault of fire and lightning restarted and his defenses began to crumble. He didn’t flinch as he felt each impact rippling off the stone, sending tremors of pain down his skin. He didn’t even flinch when a ball of plasma, thrown by the general himself, tore a hole through his chest.
 
+------
+
 Next Chapter
 
 [Table of Contents](/novel/)
