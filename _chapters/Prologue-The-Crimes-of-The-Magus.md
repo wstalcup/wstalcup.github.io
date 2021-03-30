@@ -1,6 +1,7 @@
 ---
 layout: chapter
 title: Prologue - The Crimes of the Magus
+number: prologue
 permalink: /novel/prologue/
 ---
 
