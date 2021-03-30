@@ -8,6 +8,6 @@ Table of contents for my untitled, in progress novel.
 
 ### Table of Contents
 
-[Prologue - The Sins of the Magus](/prologue/)
+[Prologue - The Sins of the Magus](/novel/prologue/)
 
 
