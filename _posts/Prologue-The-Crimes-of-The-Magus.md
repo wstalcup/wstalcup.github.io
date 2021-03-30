@@ -1,7 +1,6 @@
 ---
 layout: post
-title: prologue
-name: Prologue - The Crimes of the Magus
+title: Prologue - The Crimes of the Magus
 permalink: /novel/prologue/
 ---
 
