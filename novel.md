@@ -8,7 +8,7 @@ Table of contents for my untitled, in progress novel.
 
 ### Table of Contents
 
-[Prologue - The Crimes of the Magus](/novel/prologue/)
+[Prologue - The Crimes of the Magus](/novel/prologue/)  
 [Chapter 1 - Hunting for Purpose](/novel/1/)
 
 
