@@ -94,9 +94,9 @@ Sycamore felt a pang of hunger and was reminded, suddenly, of the dewberries he 
 
 She smiled lightly, looking at the berries. “Yes, dewberries certainly are a sweeter prize than a hare. We’ll spread them on bread with some smoked meat for an afternoon snack. The wind speaks to me and says you must be hungry after missing lunch.”
 
-“You did always teach me to listen to the wind,” Sycamore said, swinging his legs over the edge of the bench and hopping off. He tested his left leg and was relieved to feel it had returned to workable strength. 
+“You do always teach me to listen to the wind,” Sycamore said, swinging his legs over the edge of the bench and hopping off. He tested his left leg and was relieved to feel it had returned to workable strength. 
 
-“Come now, your legs fine. We’ll eat after you change your trousers and help me clean up this mess.” She gestured to the bloody floor and bench, “It’s your blood, after all.”
+“Come now, your leg is fine. We’ll eat after you change your trousers and help me clean up this mess.” She gestured to the bloody floor and bench, “It’s your blood, after all.”
 
 The members of his clan always said healing was a miracle, but he often failed to appreciate it. Of course, his mother insisted that she was the miracle, not the healing. He never protested.
 
