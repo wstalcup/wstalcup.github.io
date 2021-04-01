@@ -160,7 +160,7 @@ Lotus heaved a deep sigh of relief. Sycamore released the boy’s wrists and he 
 
 “I hope the lesson remains, though,” Sycamore’s mother said, placing a hand on Sycamore’s shoulder, “I know you wish to impress your father, to become an adult sooner. I don’t blame you for this.” She squeezed his shoulder. “Wanting to rush to adulthood, I can forgive. Recklessness, however, is a step too far. You are young yet, and there will be time in the future for adulthood.” 
 
-Sycamore felt a rush of embarrassment as he considered his mother’s words. His consideration, however, was interrupted by a loud growling from his stomach.
+Embarassment colored Sycamore's cheeks as he considered his mother’s words. His consideration, however, was interrupted by a loud growling from his stomach.
 
 His mother laughed lightly, “I think my son’s stomach speak for all of us. Lily, Lotus, would you like to join Sycamore and I for some afternoon snacks of dewberries and bread?”
 
