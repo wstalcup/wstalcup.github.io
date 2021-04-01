@@ -57,7 +57,7 @@ He didn’t flinch when the assault of fire and lightning restarted and his defe
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/1/)
 
 [Table of Contents](/novel/)
 
