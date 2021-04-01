@@ -32,7 +32,7 @@ In a slow, practiced motion, he began to whirl the sling. As it gained speed in 
 
 As the sling came up to speed, excitement grew in the pit of his stomach to replace the morning’s shame. He had left the clan’s gathering embarrassed, but he would return with meat. A hare was not worth gloating over, but it was only the start. He’d show them, day by day, that he’s capable of hunting. A hare today, a deer tomorrow, a boar after that. 
 
-He loosed the stone, and with it his hopes. It hurtled through the air with a quiet huff of wind, and he smirked as it connected with the hare. His smirk faded when he realized he’d missed his mark, the hare’s head, instead hitting its leg. 
+He loosed the stone, and with it his hopes. It hurtled through the air with a quiet huff of wind, and he smirked as it struck the animal. His smirk faded when he realized he’d missed his mark, the hare’s head, instead hitting its leg. 
 
 The small animal let out an ungodly cry as it attempted, with one shattered leg, to hobble off. It was not a wound the animal would survive, even if Sycamore didn’t track it and end its pain. Eager to gather his game and spare the animal a slow, painful death, Sycamore scrambled to follow it. In a moment of carelessness, he lost his footing on the rocky ground, slipping and falling forward. The world spun as he fell off the overhang, eventually coming to a painful landing on his hands and knees below. He felt a rush of embarrassment, thankful that no one had seen his tumble. He sat back and examined his hands, which were raw from the landing. Small pebbles dug into his skin. For days his palms would be pockmarked with painful reminders of his haste.
 
