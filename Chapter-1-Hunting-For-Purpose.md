@@ -8,6 +8,8 @@ _I first came across the boy on a sunny autumn morning, far from anywhere resemb
 
 An Excerpt from _My History, Memoirs of a Historian_
 
+------
+
 Sycamore tried his very best not to be sullen as he tracked the hare. His mother had warned him that he may not be invited on the hunt, despite tradition. It seems tradition loses its importance when dealing with a runt. 
 
 He had spotted the hare’s nest soon after fleeing from the morning’s gathering. Embarrassment had driven him out when the Head had finished announcing the names of those invited on the first hunt of the year. Sycamore’s name had not been called. For those his age, on their fourteenth spring, it was ceremony, a formality to accept new adults into the clan. Trout and Pike, two of Sycamore’s only friends, had grinned from ear to ear upon hearing their names. Now, they were no longer children. Sycamore was not sure where that left him.
