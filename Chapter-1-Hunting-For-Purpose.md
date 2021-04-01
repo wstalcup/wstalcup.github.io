@@ -4,11 +4,9 @@ title: Chapter 1 - Hunting for Purpose
 permalink: /novel/1/
 ---
 
-Chapter 1 – Hunting for Purpose
+_I first came across the boy on a sunny autumn morning, far from anywhere resembling civilization. He was perched on a rock aside the road, curiously watching me as I made my way towards him. Immediately I was wary. It was a common highwayman’s ruse, you see, to use a situation demanding compassion as bait for an ambush – an injured traveler, a broken-cartwheel. I’d never seen such using a child, but the villainy of bandits leaves little to the imagination. These suspicions faded quickly when he addressed me with the wide, earnest eyes of a child’s curiosity. No bandit, child or otherwise, was still so innocent._
 
-I first came across the boy on a sunny autumn morning, far from anywhere resembling civilization. He was perched on a rock aside the road, curiously watching me as I made my way towards him. Immediately I was wary. It was a common highwayman’s ruse, you see, to use a situation demanding compassion as bait for an ambush – an injured traveler, a broken-cartwheel. I’d never seen such using a child, but the villainy of bandits leaves little to the imagination. These suspicions faded quickly when he addressed me with the wide, earnest eyes of a child’s curiosity. No bandit, child or otherwise, was still so innocent.
-
-An Excerpt from My History, Memoirs of a Historian
+An Excerpt from _My History, Memoirs of a Historian_
 
 Sycamore tried his very best not to be sullen as he tracked the hare. His mother had warned him that he may not be invited on the hunt, despite tradition. It seems tradition loses its importance when dealing with a runt. 
 
