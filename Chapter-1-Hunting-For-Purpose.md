@@ -64,7 +64,7 @@ The slap across his face momentarily distracted him from the deep throbbing pain
 
 She continued after a moment, “It’s in there deep, but lucky for you it didn’t hit the bone, else you’d not have made it halfway back to the village. I’ve warned you again and again to be careful on those rocks, but I suppose warnings are forgotten when your simple pride is on the line. Let’s hope there are no barbs that will tear the flesh as I remove the rock. Either way, this will hurt. Look away.”
 
-He dutifully looked up at the thatched ceiling of their home, wincing at the strange, painful sensation of his mother slowly removing the shard of stone. After an excruciating moment the sensation ended, and Sycamore looked back down at his leg. Now that the stone was gone, blood gushed freely from his leg onto his mother’s hands and the bench.
+He dutifully looked up at the thatched roof of their home, wincing at the strange, painful sensation of his mother slowly removing the shard of stone. After an excruciating moment the sensation ended, and Sycamore looked back down at his leg. Now that the stone was gone, blood gushed freely from his leg onto his mother’s hands and the bench.
 
 “I don’t see any other pieces of stone in there. If there are any, they’re likely too small to cause lasting harm. I’m going to heal you now. Brace yourself.” She held his leg firmly in place with one hand and placed the other overtop the wound.
 
