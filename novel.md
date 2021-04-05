@@ -11,6 +11,7 @@ Table of contents for my untitled, in progress novel.
 #### Volume 1 - Sapling on the Plains
 
 [Prologue - The Crimes of the Magus](/novel/prologue/)  
-[Chapter 1 - Hunting for Purpose](/novel/1/)
+[Chapter 1 - Hunting for Purpose](/novel/1/)  
+[Chapter 2 - Of Feasts and Fortunes](/novel/2/)
 
 
