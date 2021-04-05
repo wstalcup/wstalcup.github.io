@@ -38,7 +38,7 @@ Sycamore, despite his jealousy, smiled too. “You just wish to have had one mor
 
 “I can see why. It’s a hulking thing, will feed more than a hundred tonight,” Sycamore shook his head. “But take note, Pike. You speared a hog on your first hunt. When mine comes around, I’ll kill two.” Pike laughed loudly, and the two rose from the bench where they sat in Sycamore’s home, making to leave.
 
-Pike wrapped an arm around Sycamore’s shoulder as they emerged into the festivities at the village center. His friend grinned down at him, the light of the bonfire reflecting off his eyes. “Come and feast with us. My brother promised to sneak a cask of wine from under our Ma’s nose. You’re welcome to share it.” Sycamore grinned. He was still jealous of his friend, of course, but he would not let those feelings ruin a chance at festivity. 
+Pike wrapped an arm around Sycamore’s shoulder as they emerged into the festivities at the village center. His friend grinned down at him, the light of the bonfire reflecting off his eyes. “Come and feast with us. My brother promised to sneak a cask of wine from under our ma’s nose. You’re welcome to share it.” Sycamore grinned. He was still jealous of his friend, of course, but he would not let those feelings ruin a chance at festivity. 
 
 -----
 
