@@ -169,7 +169,7 @@ His mother laughed lightly, “I think my son’s stomach speak for all of us. L
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/2/)
 
 [Table of Contents](/novel/)
 
