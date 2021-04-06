@@ -134,7 +134,7 @@ Sycamore turned to the source of the voice, an approaching youth. He was large f
 
 “What do you want, Lupin?” Sycamore asked.
 
-“Just to ask after your well-being!” Lupin said with feign innocence, “After you threw a fit and stormed off yesterday morning, I was worried you’d be too embarrassed to show your face around the village again. Thankfully, you lack such... reticence. Of course I can’t imagine such shame happening to anyone but you, runt.” Lupin strode over to Sycamore, placed a hand on his shoulder. “Do not worry. I’m sure, some day, in many years, you’ll be big enough to come with us on the hunt. Perhaps by the time my children are adults.”
+“Just to ask after your well-being!” Lupin said with feign innocence, “After you threw a fit and stormed off yesterday morning, I was worried you’d be too embarrassed to show your face around the village again. Thankfully, you lack such... reticence. Of course, I can’t imagine such shame happening to anyone but you, runt.” Lupin strode over to Sycamore, placed a hand on his shoulder. “Do not worry. I’m sure, some day, in many years, you’ll be big enough to come with us on the hunt. Perhaps by the time my children are adults.”
 
 Sycamore bit back a barb doubting Lupin’s ability to have children. It would not do to provoke the larger boy. He was bigger than Sycamore, stronger. Lupin was urging Sycamore to fight back, so he could throw him in the dirt. It was a common pattern.
 
