@@ -193,7 +193,7 @@ Suddenly Trout was on top of Lupin, knocking the boy off of Sycamore and sending
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/3/)
 
 [Table of Contents](/novel/)
 
