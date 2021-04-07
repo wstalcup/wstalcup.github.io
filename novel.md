@@ -4,7 +4,7 @@ title: Novel
 permalink: /novel/
 ---
 
-Table of contents for my untitled, in progress novel.
+Table of contents for my ongoing high fantasy novel, following the adventures of Sycamore.
 
 ### Table of Contents
 
