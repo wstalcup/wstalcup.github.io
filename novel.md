@@ -12,7 +12,7 @@ Table of contents for my untitled, in progress novel.
 
 [Prologue - The Crimes of the Magus](/novel/prologue/)  
 [Chapter 1 - Hunting for Purpose](/novel/1/)  
-[Chapter 2 - Of Feasts and Fortunes](/novel/2/)
-[Chapter 3 - A Hope for Growth](/novel/3/)
+[Chapter 2 - Of Feasts and Fortunes](/novel/2/)  
+[Chapter 3 - A Hope for Growth](/novel/3/)  
 
 
