@@ -121,7 +121,7 @@ Sycamore grunted in response. He knew what Jackdaw said was true, but it confuse
 
 They had walked a distance while talking, to a peaceful copse on the northern end of the village. Jackdaw came to a stop among the trees, turning to Sycamore.
 
-“If you mean to say that one day I will become strong, do not waste your breath. Mother speaks like that often, and I have no plans to bide my time until strength comes to me,” Sycamore said. There was value to such thought, patience for strength, but his experience with Lupin that morning and his reflections over the hare’s corpse had driven him to swear of waiting.
+“If you mean to say that one day I will become strong, do not waste your breath. Mother speaks like that often, and I have no plans to bide my time until strength comes to me,” Sycamore said. There was value to such thought, patience for strength, but his experience with Lupin that morning and his reflections over the hare’s corpse had driven him to swear off waiting.
 
 Jackdaw laughed. “Our mother is wise. I am sure, even without what I suggest today, you would one day become a beacon of strength in the clan, enough so that even the terrible smith’s boy couldn’t bother you.” He paused at Sycamore’s shocked expression. “Come now, Sycamore. I may have told you to play nice with Lupin this morning, but I’m not so blind that I miss the boy’s defects. His father gave him that sword to encourage maturity, but I fear the day he unsheathes it in a fit of anger.” Sycamore resisted the urge to poke at the cut on his nose.
 
