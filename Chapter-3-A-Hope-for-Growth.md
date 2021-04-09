@@ -133,7 +133,7 @@ Jackdaw hummed as he thought. “Yes,” He answered, “Train you, surely. But 
 
 “Well what do you wish to teach me?” Sycamore said, eagerness creeping into his voice.
 
-Jackdaw smiled, sensing the boy’s excitement. “Tell me, Sycamore. What do you know of our clan’s art of Speaking with the Wind.”
+Jackdaw smiled, sensing the boy’s excitement. “Tell me, Sycamore. What do you know of our clan’s art of Speaking with the Wind?”
 
 Sycamore thought about it. “I’m not sure. Mother often speaks of listening to the wind, but never speaking with it. That sounds the purview of madmen and oracles.”
 
