@@ -156,7 +156,7 @@ Sycamore lay on the ground, heart racing as he tried to comprehend what had just
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/4/)
 
 [Table of Contents](/novel/)
 
