@@ -14,5 +14,5 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 1 - Hunting for Purpose](/novel/1/)  
 [Chapter 2 - Of Feasts and Fortunes](/novel/2/)  
 [Chapter 3 - A Hope for Growth](/novel/3/)  
-
+[Chapter 4 - The Changing Wind](/novel/4/)
 
