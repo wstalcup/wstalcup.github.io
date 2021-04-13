@@ -2,6 +2,7 @@
 layout: page
 title: Prologue - The Crimes of the Magus
 permalink: /novel/prologue/
+comments: true
 ---
 
 Fire crashed against the walls of the keep, a flash of pain on the edge of the Magus’s awareness. The sound and shock of the blast were muted in his workshop sequestered deep within the earth. He muttered calculations to himself as he frantically scribbled down his final volume of notes, hoping, praying that some of his work would be spared for posterity. Another fireball crashed against the limestone, larger than the last, and he winced as bits of stone rained from above. He could not see their forces, but he knew he was surrounded in his keep, his prison, his body. 
