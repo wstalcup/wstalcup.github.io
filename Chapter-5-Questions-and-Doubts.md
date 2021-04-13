@@ -198,7 +198,7 @@ Juniper grit her teeth, but eventually responded in a more controlled tone, “M
 
 For a long time, they walked. The silence of the night only interrupted by the sounds of their footfalls and intermittent gasps and sobs from Juniper. Eventually, Jackdaw caught them, carrying a torch with him.
 
-When they found the corpse, it was clear some animals had gotten to it. Flesh was torn where wolves had taken bites out of limbs, stiff with death. Flies circled the body, landing on bruised flesh. Sycamore felt bile rising in his stomach, but forced it back. He had seen a corpse before, though not in such condition. Next to him, Juniper went limp, falling to her knees, clinging to his mother. Her voice rose, and the cool, dark night filled with screams of despair.
+When they found the corpse, it was clear some animals had gotten to it. Flesh was torn where wolves had taken bites out of limbs, stiff with death. Flies circled the body, landing on bruised skin. The air smelled of blood and sick and waste, the coppery, rotten smell of death. Sycamore felt bile rising in his stomach, but forced it back. He had seen a corpse before, though not in such condition. Next to him, Juniper went limp, falling to her knees, clinging to his mother. Her voice rose, and the cool, dark night filled with screams of despair.
 
 ------
 
