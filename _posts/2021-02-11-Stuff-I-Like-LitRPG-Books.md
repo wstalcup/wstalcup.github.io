@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Stuff I Like - LitRPG Books
+comments: true
 ---
 
 This is the first post in a series where I give my thoughts on things I like.
