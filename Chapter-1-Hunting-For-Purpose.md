@@ -2,6 +2,7 @@
 layout: page
 title: Chapter 1 - Hunting for Purpose
 permalink: /novel/1/
+comments: true
 ---
 
 _I first came across the boy on a sunny autumn morning, far from anywhere resembling civilization. He was perched on a rock aside the road, curiously watching me as I made my way towards him. Immediately I was wary. It was a common highwayman’s ruse, you see, to use a situation demanding compassion as bait for an ambush – an injured traveler, a broken-cartwheel. I’d never seen such using a child, but the villainy of bandits leaves little to the imagination. These suspicions faded quickly when he addressed me with the wide, earnest eyes of a child’s curiosity. No bandit, child or otherwise, was still so innocent._
