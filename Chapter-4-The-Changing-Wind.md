@@ -156,7 +156,7 @@ Around Sycamore, four torches lit, blinding him with their light.
 
 ------
 
-[Next Chapter](/novel/4/)
+[Next Chapter](/novel/5/)
 
 [Table of Contents](/novel/)
 
