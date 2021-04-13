@@ -2,6 +2,7 @@
 layout: page
 title: Chapter 5 - Questions and Doubts
 permalink: /novel/5/
+comments: true
 ---
 
 
