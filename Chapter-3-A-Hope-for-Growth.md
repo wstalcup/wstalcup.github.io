@@ -2,6 +2,7 @@
 layout: page
 title: Chapter 3 - A Hope for Growth
 permalink: /novel/3/
+comments: true
 ---
 
 
