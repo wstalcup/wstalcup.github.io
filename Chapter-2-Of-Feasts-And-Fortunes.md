@@ -2,6 +2,7 @@
 layout: page
 title: Chapter 2 - Of Feasts and Fortunes
 permalink: /novel/2/
+comments: true
 ---
 
 _His boyish face and open expression suggested he was no more than ten or eleven years old. He wore clothes of linen and hide in a style unfamiliar to me. As far as I knew, there were no remaining villages in these plains. Following the Purging of the Eastern Heresy and the Brush Wars, the people of the Kingdom called this land cursed. I had come to the east expecting ruins and death. Instead, I had found the boy._
