@@ -61,5 +61,11 @@ The fire burned, hot and loud, and something in Juniper resolved. She cried, her
 
 That evening, a meeting of the council of elders was called, and the tone in the village changed.
 
+------
 
+Next Chapter
+
+[Table of Contents](/novel/)
+
+[Previous Chapter](/novel/5/)
 
