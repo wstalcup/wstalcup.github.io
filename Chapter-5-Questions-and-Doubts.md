@@ -202,7 +202,7 @@ When they found the corpse, it was clear some animals had gotten to it. Flesh wa
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/6/)
 
 [Table of Contents](/novel/)
 
