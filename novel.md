@@ -15,6 +15,6 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 2 - Of Feasts and Fortunes](/novel/2/)  
 [Chapter 3 - A Hope for Growth](/novel/3/)  
 [Chapter 4 - The Changing Wind](/novel/4/)  
-[Chapter 5 - Questions and Doubts](/novel/5/)
-[Chapter 6 - Rites of the Fallen](/novel/6/)
+[Chapter 5 - Questions and Doubts](/novel/5/)  
+[Chapter 6 - Rites of the Fallen](/novel/6/)  
 
