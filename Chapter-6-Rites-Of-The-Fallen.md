@@ -171,7 +171,7 @@ Still, there was an allure to the prospect of having one with such knowledge to 
 
 “For both of us, you may not realize. What we would do is an equal relationship. The bond could be severed at any time, should one of us act out of the terms. Of course, I do not wish to rush you in the offer. As you said, it’s a substantial commitment, and I would fault you if you made it lightly.”
 
-“I dont't fully understand,” Sycamore said, “Which is a problem I have. You speak in unfamiliar words, talk of things that confuse me. It would be foolish for me to agree to such a bargain.”
+“I don't fully understand,” Sycamore said, “Which is a problem I have. You speak in unfamiliar words, talk of things that confuse me. It would be foolish for me to agree to such a bargain.”
 
 “True enough. Difficult it is to read a contract if you do not speak the language,” The Magus replied, “What do you say to an offer of good faith, to convince you of the bargain. I will teach you what you need to know of soul magic to understand how we will bind our souls, and then you may make your decision on the bargain.”
 
