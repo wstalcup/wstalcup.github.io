@@ -93,7 +93,7 @@ Sycamore bit at his lip as the thought of what to say. He was still wary of the 
 
 “You do not trust me, yet you ask for advice?” 
 
-“To receive advice does not mean I will take it.”
+“Just because I hear your advice does not mean I will take it.”
 
 “Fair. Answer my questions, then, and I’ll offer you whatever advice I’m able,” There was a light note of humor to his voice, “Though I make no guarantees on the quality. I am a man of many mistakes.”
 
@@ -107,7 +107,7 @@ A flush of embarrassment at the memory of his reaction passed to Sycamore’s ch
 
 The Magus hummed in thought, the sound of it echoing off the walls. Finally he replied, “A large problem for one so young, and right you are to fear such lethargy. Many times have I seen it, a slow reaction to a threat, lingering in indecision until the sword is at your neck. Lessons you spoke of, and this one I know well. Tell me, what advice do you want?”
 
-“I don’t know what to do. I exhaust myself training, but cannot sleep for fear of threats in the night. I wish to understand what is happening, but am told to wait until a decision is reached. I fear to see another pyre, but still who killed my clansman walks free. What course of action should I take?”
+“I don’t know what to do. I exhaust myself training, but cannot sleep for fear of threats in the night. I wish to understand what is happening, but am told to wait until a decision is reached. I fear to see another pyre, but still who killed my clansman walks free. What should I do?”
 
 “A hefty question with hefty consequence. What do you know of this threat?”
 
@@ -143,7 +143,7 @@ Sycamore did not reply. His eyes traced the bookshelves as he thought on the Mag
 
 “Your mother sounds wise.”
 
-“She would say the same,” Sycamore said with a sigh, “Thank you, Magus, for your council. Perhaps I simply needed to hear such advice in a different voice.”
+“She would say the same,” Sycamore said with a sigh, “Thank you, Magus, for your advice. It seems sound, though I wish there was something to quickly resolve the issue.”
 
 “You owe me no thanks, Sycamore, for it was nothing but a part of our exchange.”
 
@@ -151,7 +151,7 @@ Sycamore did not reply. His eyes traced the bookshelves as he thought on the Mag
 
 A moment of silence passed before the Magus responded. “Questions I have, but first, I have a request and a bargain. The request, a demonstration, here, of your ability to heal. My curiosity has been piqued by your descriptions, and I wonder after what new insight I could gain by observing the use of your abilities.”
 
-Sycamore shook his head. “Unless you are able to pull forth a body for me to use my healing on, I’m afraid that’s impossible. Were I able, I would slice open my hand and heal it in front of you, if only to boast on my ability. But I can do no such thing, as healing yourself is far beyond taboo. It is life threatening.”
+Sycamore shook his head. “Unless you are able to bring out a body for me to use my healing on, I’m afraid that’s impossible. If I could, I would slice open my hand and heal it in front of you. But I can do no such thing, as healing yourself is far beyond taboo. It is life threatening.”
 
 “Fascinating, that,” The Magus said, “I still would like a demonstration, but that answer alone raises many new paths of thought.” He drifted into muttering in that foreign language, what Sycamore assumed to be the language of the Westfolk kingdoms.
 
@@ -171,7 +171,7 @@ Still, there was an allure to the prospect of having one with such knowledge to 
 
 “For both of us, you may not realize. What we would do is an equal relationship. The bond could be severed at any time, should one of us act out of the terms. Of course, I do not wish to rush you in the offer. As you said, it’s a substantial commitment, and I would fault you if you made it lightly.”
 
-“A problem I have,” Sycamore said, “Is that while you can assure me that this is an equal relationship, your knowledge of soul magic certainly outstrips mine, and I will be unable to verify that. Difficult to commit myself with such little knowledge.”
+“I dont't fully understand,” Sycamore said, “Which is a problem I have. You speak in unfamiliar words, talk of things that confuse me. It would be foolish for me to agree to such a bargain.”
 
 “True enough. Difficult it is to read a contract if you do not speak the language,” The Magus replied, “What do you say to an offer of good faith, to convince you of the bargain. I will teach you what you need to know of soul magic to understand how we will bind our souls, and then you may make your decision on the bargain.”
 
