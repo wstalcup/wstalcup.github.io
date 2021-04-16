@@ -184,7 +184,7 @@ Sycamore thought it over a moment. There was little commitment here besides the 
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/7/)
 
 [Table of Contents](/novel/)
 
