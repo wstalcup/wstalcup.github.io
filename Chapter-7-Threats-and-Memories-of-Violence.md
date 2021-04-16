@@ -179,7 +179,7 @@ Sycamore hummed thoughtfully. “Perhaps he would better learn his lesson if we 
 
 “I suspect without us, he would not survive the month,” His mother said, and they both laughed. Soon, they returned home, and made to prepare lunch. They spoke while working.
 
-Sycamore’s mother talked ash she sliced some bread. “I’m sorry, again, for my harshness yesterday, but I hope you begin to understand where It comes from. You and I share many strengths, and I was afraid to see myself in you, Sycamore. Not me as I am now, but as I was those years ago, wreathed in pain and destruction. Violence comes once again to the Heartwood clan once again, Sycamore. I can hear it in the wind. Promise me that you will not let it consume you like it once consumed me.”
+Sycamore’s mother talked as she sliced some bread. “I’m sorry, again, for my harshness yesterday, but I hope you begin to understand where It comes from. You and I share many strengths, and I was afraid to see myself in you, Sycamore. Not me as I am now, but as I was those years ago, wreathed in pain and destruction. Violence comes to the Heartwood clan once again, Sycamore. I can hear it in the wind. Promise me that you will not let it consume you like it once consumed me.”
 
 Sycamore swallowed. He enjoyed the power of Speaking, and felt he was growing stronger quickly. But his mother’s dark memories told him that to grow too enamored with that strength would only lead to pain.
 
