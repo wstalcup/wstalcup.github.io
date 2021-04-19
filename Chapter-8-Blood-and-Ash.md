@@ -81,7 +81,7 @@ Sycamore fell forward, clinging to Lupin’s shoulder. He felt tears pouring dow
 
 “Perhaps two hundred of them rode on carts, dragged by stout horses, into the center of the village. My father, hearing the screams, pulled an axe from somewhere and bade me to guard the forge, protect my younger siblings.”
 
-“Who are they?” Sycamore asked. He also replaced his own blood-soaked trousers, borrowing a pair from Lotus, the younger Aivis boy. They were too small by a margin, but better than walking around caked in blood.
+“Who are they?” Sycamore asked. He also replaced his own blood-soaked trousers, borrowing a pair from Lotus, the younger Aivis boy. They were too small by a margin, but better than walking around caked in gore.
 
 “I don’t know,” Lupin said, “Another clan, from the north. I heard my father say ‘fireglass,’ but the name is unfamiliar to me.” Vaguely, Sycamore recalled hearing the name before, but exactly where, he could not place.
 
