@@ -5,7 +5,7 @@ permalink: /novel/8/
 comments: true
 ---
 
-_We came upon a stag, one day, wandering out of a copse. It was a big thing, ten points at least. Quick as a whip, the boy undid his belt, unfurling it to reveal a sling. He scraped up a stone from the ground, and in the span of a few breaths was whirling it with great speed. A flick of his wrist and the stone flew, faster than I could track. Next I saw, a stone sized welt appeared between the stag’s eyes, and it collapsed, dead. Without a word, he redid his belt, moving to attend to the corpse he just made._
+_We came upon a stag, one day, wandering out of a copse. It was a big thing, ten points at least. Quick as a whip, the boy undid his belt, unfurling it to reveal a sling. He scraped up a stone from the ground, and in the span of a few breaths was whirling it with great speed. A flick of his wrist and the stone flew, faster than I could track. Next I saw, a stone-sized welt appeared between the stag’s eyes, and it collapsed, dead. Without a word, he redid his belt, moving to attend to the corpse he just made._
 
 An excerpt from _My History, Memoirs of a Historian_
 
