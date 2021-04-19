@@ -18,4 +18,5 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 5 - Questions and Doubts](/novel/5/)  
 [Chapter 6 - Rites of the Fallen](/novel/6/)  
 [Chapter 7 - Threats and Memories of Violence](/novel/7/)  
+[Chapter 8 - Blood and Ash](/novel/8/)  
 
