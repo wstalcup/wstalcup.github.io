@@ -188,7 +188,7 @@ Sycamore swallowed. He enjoyed the power of Speaking, and felt he was growing st
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/8/)
 
 [Table of Contents](/novel/)
 
