@@ -53,7 +53,7 @@ The man stared at him for a long moment before responding. He raised his hands i
 
 The man let out a wordless yell. He started dashing towards Sycamore, grabbing at the sword sheathed at his waist. A few steps later, his yell cut off and he collapsed to the ground in a heap. Belatedly, Sycamore realized he’d loosed his sling. He released his connection to the wind, felt a cool breeze on his face. Taking a deep breath, he tried to calm a sudden bout of dizziness. He slowly walked towards the man, who lay face down on the ground. Sycamore was having trouble controlling his breathing, and his heart was beating erratically.
 
-He came upon the man and, fearing some kind of trick, grabbed the sword off the ground. Leveraging with his foot, he flipped the man over. The sword tumbled from Sycamore’s hand. The man’s eye socket was collapsed where the stone had struck him. His eye had burst, and blood was oozing out of the wound. Spittle and blood had mixed with dirt, caking his face with dark mud. Sycamore looked at the man, dead by his hand, for a moment before turning to the side and vomiting.
+He came upon the man and, fearing some kind of trick, grabbed the sword off the ground. Leveraging with his foot, he flipped the man over. The sword tumbled from Sycamore’s hand. The man’s eye socket was collapsed where the stone had struck him. His eye had burst, and blood oozed out of the wound. Spittle and gore had mixed with dirt, caking his face with dark mud. Sycamore looked at the man, dead by his hand, for a moment before turning to the side and vomiting.
 
 -----
 
