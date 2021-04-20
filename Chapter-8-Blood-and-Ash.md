@@ -129,7 +129,7 @@ There, standing in the middle of the street, shepherd’s crook clasped in shaky
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/9/)
 
 [Table of Contents](/novel/)
 
