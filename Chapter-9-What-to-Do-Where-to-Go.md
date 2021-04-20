@@ -17,7 +17,7 @@ An Excerpt from _My History, Memoirs of a Historian_
 
 “You’ll have to tell us about it,” Pike said, trading his shepherd’s crook for the dead man’s spear.
 
-“Later,” Sycamore said, “For now, we move.” He still wasn’t sure how to feel about the life he had taken. On the one hand, the man had torched his house and attacked his clan, and if he hadn’t brained him with a stone, Sycamore would likely be the one staring that empty, skyward stare. On the other hand, his one-eyed face would surely haunt Sycamore’s dreams for a long time.
+“Later,” Sycamore said, “For now, we move.” He still wasn’t sure how to feel about the life he had taken. On the one hand, the man had torched his house and attacked his clan, and if he hadn’t smashed his skull with a stone, Sycamore would likely be the one staring that empty, skyward stare. On the other hand, his one-eyed face would surely haunt Sycamore’s dreams for a long time.
 
 The reunion with Pike had been laughter filled, but the cheer quickly faded to uncomfortable silence as the reality of the situation set in.
 
