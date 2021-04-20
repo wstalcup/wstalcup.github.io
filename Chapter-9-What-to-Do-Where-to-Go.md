@@ -107,7 +107,7 @@ The raider mouthed silent curses, but nothing came out besides a frothy mix of b
 
 Pike let out a final grunt of effort, pushing on the spear once again. With a squelch, Sycamore saw the tip prod out the back of the raider’s neck, strength disappearing from his limbs as life fled from his eyes. The man collapsed to the ground, and Pike tugged on the spear, freeing it with a wet noise from the body, now lying in a slowly growing pool of dark blood.
 
-“Thanks for the timely rescue, Sycamore,” Trout said between pants, eyes flicking between the bloody head of his spear and the dead man’s mangled neck.
+“Thanks for the timely rescue, Sycamore,” Pike said between pants, eyes flicking between the bloody head of his spear and the dead man’s mangled neck.
 
 “Always a pleasure-” Sycamore started, cutting off with a wince when he poked a hand at where the raider had struck him. He tried again. “Always a pleasure to throw a punch for a friend.” He felt blood dripping down the side of his head, and a daze lingered over his senses. He shook his head to try to clear his mind, but the fog remained.
 
@@ -177,7 +177,7 @@ He rose to his feet, scowling at Pike and Sycamore. “I do not know what posses
 
 “Mrs. Maple is right, though, Sprout. We can’t stay here, even if she’d have us. We need to find a place to avoid their searches until they leave.”
 
-Sycamore pondered the question a moment before an idea struck him. He nearly smacked himself in the forehead, it was so obvious. He did some metal measurements before nodding to himself. Certainly, seven people would be a tight fit, but they’d have to make do. He only hoped the Magus was telling the truth about being a hospitable host.
+Sycamore pondered the question a moment before an idea struck him. He nearly smacked himself in the forehead, it was so obvious. He did some mental measurements before nodding to himself. Certainly, seven people would be a tight fit, but they’d have to make do. He only hoped the Magus was telling the truth about being a hospitable host.
 
 -----
 
