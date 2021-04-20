@@ -171,7 +171,7 @@ Sycamore felt a pang of shame when he realized he had not even considered proper
 
 He rose to his feet, scowling at Pike and Sycamore. “I do not know what possesses you to decide for me, runt.” His words were slurred, he swayed on his feet. “Perhaps because you two managed to muster a few bodies between you, you suddenly think yourselves better than me. But I won’t hear of your cowardice! You can’t stop me, I’m going to track them and free my family one way or...” His words slowly trailed off before he finally fainted, collapsing back on his chair.
 
-“He lost a lot of blood today,” Sycamore said, sighing, “I warned him he needs to rest. I’m finally beginning to understand my mother’s words about ‘fool honor’.” 
+“He lost a lot of blood today,” Sycamore said, sighing, “I warned him he needs to rest. I’m finally beginning to understand my mother’s words about ‘fool's honor’.” 
 
 “I find Aunt Poppy’s words offer more wisdom every day,” Mrs. Maple said with a sad smile towards Lupin, “His bravery is admirable, but some control and rest will do him good.”
 
