@@ -143,7 +143,7 @@ She let out a deep, shaky sigh, and Sycamore saw the shock on her face fall to r
 
 “Your kids, are they alright?” Pike asked.
 
-“Should still be napping,” Mrs. Maple said with a nod, “I put them down with some lavender tea when Hickory started complaining that they wanted to run around outside. They might’ve woken with the ruckus down here, but my Pa is down with them in the cellar, he should keep them breathing. I’d fetch them, but I don’t want them to see the blood on the ground.”
+“Should still be napping,” Mrs. Maple said with a nod, “I put them down with some lavender tea when Hickory started complaining that they wanted to run around outside. They might’ve woken with the ruckus up here, but my Pa is down with them in the cellar, he should keep them breathing. I’d fetch them, but I don’t want them to see the blood on the ground.”
 
 Sycamore thought back to when he had visited this Vineyard to deliver Maple’s baby three years before. It was her second child, a girl named Mist. At the time, her son, Hickory was two, which would put him at five. Sycamore winced. Yes, it would not do for them to see such tragedy at such a young age.
 
@@ -161,7 +161,7 @@ The three boys shared a look, and Lupin spoke, “Obviously, we’ll be pursuing
 
 “You can hardly stand up straight, let alone track a band of raiders. We need to rest, recover, then determine a course of action,” Pike said.
 
-“Mrs. Maple, what will you do?” Sycamore asked. All his plans had been made assuming they wouldn’t find anyone. Now that they had found Maple and her family, they had to be discarded.
+“Mrs. Maple, what will you do?” Sycamore asked. All his plans had been made assuming they wouldn’t find anyone. Now that they had found Maple and her family, those earlier plans had to be discarded.
 
 “We’ll make due. Obviously, we can’t stay here, but I won’t leave the dead of our clan unburied in the village. So I’ll hide away somewhere for a few days with my family then get to work.”
 
