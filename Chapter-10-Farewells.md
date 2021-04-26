@@ -80,7 +80,7 @@ _That violence is the solution to a problem?_
 
 _That power, knowledge, progress ought to be earned, not given. Sometimes solving a problem requires a drastic solution._ Sycamore sat back down on the floor, beckoning the children to return to their seats. He enjoyed spending time with them. It lent a sense of normalcy to their situation, their naïve understanding of what was happening a fresh contrast to his own grim thoughts.  
 
-_Peace, when it’s available, is always preferable to violence. _ 
+_Peace, when it’s available, is always preferable to violence._ 
 
 _Then did you find a peaceable end with the invaders of your village?_
 
