@@ -181,7 +181,7 @@ Sycamore pondered the question a moment before an idea struck him. He nearly sma
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/10)
 
 [Table of Contents](/novel/)
 
