@@ -34,7 +34,7 @@ Sycamore flinched at the volume, and was surprised when none of the others awoke
 
 “Once, long ago, there was an old woman,” Sycamore said. Hickory and Mist sat on his lap, one child for each leg, looking down at the book in his hands. It was a big, old thing, bound in wood with vellum pages, yellowed with age. Colorful images decorated the pages alongside words of the Westfolk tongue. It was unreadable to Sycamore, so the Magus supplied the story.
 
-“Though she always wanted children of her own, she had none. One day, she saw a bright star in the sky and wished upon it that she could have her own child.” The children were entranced by the pictures on the page, captured by their vivid color. The book was from one of the Magus’s shelves, provided on their second day of isolation in the. He explained that it was from when his apprentices were young.
+“Though she always wanted children of her own, she had none. One day, she saw a bright star in the sky and wished upon it that she could have her own child.” The children were entranced by the pictures on the page, captured by their vivid color. The book was from one of the Magus’s shelves, provided on their second day of isolation in the library. He explained that it was from when his apprentices were young.
 
 “She dreamed that night of a flower petal falling from a tree slowly and happily to land in her bedroom. When she awoke, there was a baby on her windowsill. In honor of the star who had brought this light to her life, she named the baby Starlight.” 
 
@@ -118,7 +118,7 @@ _Take care of the children, The Magus said as they stepped up the stairs, Their 
 
 Sycamore muttered a cruse when his spade struck a rock. He stood knee deep in a large pit, dug to serve as a grave for their fallen clansmen. Lupin and Gramps were somewhere distant from the death and destruction, watching Hickory and Mist. Next to him, Pike and Mrs. Maple held spades of their own, slowly widening and deepening the half-dug hole. They needed a large grave to hold seventeen bodies.
 
-Seventeen. Seventeen members of the Heartwood clan. Seventeen faces frozen in their final expressions. Seventeen bodies, bloated with age, foaming at the eyes and mouth. If Sycamore looked at it with cold analysis, it was a shock that so few had died considering the ruined state of their village. But when he looked at it as a child of the Heartwood clan, it was a shock to think that seventeen of his friends and neighbors lay dead.
+Seventeen. Seventeen members of the Heartwood clan. Seventeen faces frozen in their final expressions. Seventeen bodies, picked at by carrion eaters. If Sycamore looked at it with cold analysis, it was a shock that so few had died considering the ruined state of their village. But when he looked at it as a child of the Heartwood clan, it was a shock to think that seventeen of his friends and neighbors lay dead.
 
 Mrs. Maple spoke to them of the Fireglass clan while they worked.
 
