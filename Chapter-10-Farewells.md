@@ -112,7 +112,7 @@ Sycamore heard the Magus sigh, an odd thing to come through the soul, _Very well
 
 Sycamore couldn’t help but smile. _I promise you, Magus, I’ll return and give your offer some proper consideration once this business with the Fireglass is resolved. For taking us in like this, I owe you at least that much._ They finished their packing, and the hill grumbled as the stairwell to the surface opened.
 
-_Take care of the children, The Magus said as they stepped up the stairs, Their laughter served as a welcome distraction from the angry one’s whinging._ Sycamore stifled a laugh, waving a farewell to the Magus’s alter. Then, he stepped into the sunlight for the first time in three days.
+_Take care of the children,_ The Magus said as they stepped up the stairs, _Their laughter served as a welcome distraction from the angry one’s whinging._ Sycamore stifled a laugh, waving a farewell to the Magus’s alter. Then, he stepped into the sunlight for the first time in three days.
 
 -----
 
