@@ -48,7 +48,7 @@ Those unfamiliar with 3CfD or Jeff Rosenstock’s discography in general will qu
 
 ## Part 2: The Meat of this Thing, or A Song-by-Song look at The Lyrics and Music:
 
-A shrill mish-mash of horns, a countdown from ten, and it’s a galloping start on “The Last Bell I Will Ever Hear”. Jeff, angry at a relationship, is sick of being controlled and laments the collapse with a decisive “if I never see you again it’ll be too soon!” Into the next track, “(I Must Be a Proctologist Because) All I Do is Deal With Assholes,” Jeff calls out the fake friends who will, even in his death, use him for sympathy. In a particularly clever moment he screams:
+A shrill mish-mash of horns, a countdown from ten, and it’s a galloping start on “The Last Bell I Will Ever Hear”. Jeff, angry at a relationship, is sick of being controlled and laments the collapse with a decisive “if I never see you again it’ll be too soon!” Into the next track, “(I Must Be a Proctologist Because) All I Do is Deal With Assholes,” Jeff calls out the fake friends who will, even in his death, use him for sympathy. In a particularly clever moment he screams:   
 And when I’m gone tomorrow, you’ll talk to your new shiny friends and you’ll lie when you claim to care:   
 “Let’s have a toast to our old friend.” “He’ll be there in our memories.”  
 Go fuck yourself I won’t waste my time there.  
