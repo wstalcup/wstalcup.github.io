@@ -131,6 +131,8 @@ Thanks for reading over some of my favorite parts. I know this thing is too damn
 
 ## Part 3 – Themes, or Jeff, The Music Industry, and a Tale of Disappointment
 
+![Jeff and btmi, a bunch of qts](https://quoteunquoterecords.com/images/bands/btmibands.jpg)
+
 If you’re still with me after that overly-detailed look at the songs and their lyrics, thank you. If you skipped to this part, that’s okay, too. I want to summarize and synthesize what I’ve learned from looking closely at the lyrics, mainly from two perspectives: the first is what this album says about Jeff Rosenstock and his development from Arrogant Son of Bitch to Bomber of the Music Industry, and the second is what this album said to me as an adolescent with the volume turned all the way up.
 
 It is far more obvious to me now than it was ten years ago that this album was a turning point. Jeff explicitly points out in the liner notes that the moment he knew that ASoB was over was when they were wasting celebration time signing posters: “As we sat around signing shit instead of actually enjoying our accomplishment that we spent fucking YEARS on […] we all knew that this was never gonna be a band again ‘cause this is what being in this band would be like.” If we combine this obvious disdain for excessive merchandizing with the brutal takedown of the indie/punk scene in the middle leg of 3CfD, it’s easy to understand the trajectory of Jeff’s career. When ASoB was on hiatus, Jeff put together a handful of tracks, releasing them as the album “Album Minus Band” under the artist name “Bomb the Music Industry!” and the rest, as they say, is history. 
