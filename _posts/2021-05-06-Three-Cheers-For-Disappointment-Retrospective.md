@@ -17,13 +17,14 @@ I look back now, with ten years of context and growth, in musical taste and matu
 
 ## Part 1 – Genesis, or The People Behind the Album:
 
+
 The Arrogant Sons of Bitches were a 6-piece Long Island-based DIY Ska-Punk band that made waves in the ska scene early in the 2000s, most notably for their DIY punk ethic(From the liner notes of 3CfD: “I recorded some sax, percussion and vocal parts in various bathrooms, bedrooms and friends’ practice spaces”) and high energy live performances. They self-released their first two albums before releasing _Three Cheers for Disappointment_ under Killnormal records. Their sound is a standout example of east coast ska-punk, with its raw, hardcore stylings as compared to the west coast style of poppier, upbeat party tracks (a la No Doubt and Reel Big Fish). Now, they are probably best remembered for their unapologetically crass band name and wild, untamed music, as well as for being the launching point of Jeff Rosenstock’s career. 
 
 Along with the chaos came a strong sense of relatability. ASoB’s music comes off as human, unpretentious, and genuine. It sounds like a bunch of high school friends throwing down, because that’s what it was(“We got a case or two of beer, invited all of our friends down and we had a very difficult time getting things done”). The band started as a couple of friends playing Green Day covers together, and I swear I can hear that in their music. Like a good, old-fashioned friendship, it’s crass, confrontational, familiar, and friendly. 
 
 It is impossible to talk about ASoB without mentioning that their front man was Jeff Rosenstock, a beloved figure in the DIY punk scene who continues to release new music as of 2021 – his most recent album, SKA DREAM, is my album of the year for 2021. ASoB was the first leg of Jeff’s career, and _Three Cheers for Disappointment_ was its swansong. The recording of this album was long, tumultuous, and ostensibly broke up the band. There was a breaking point, here, but when the dust finally settled and the album was released, it was a chaotic, bombastic masterpiece of high-octane ska that encapsulates the untamed identity that ASoB had carved for themselves. In many ways, this album serves as an explanation of Jeff’s motivations as he moved on to his next musical project, Bomb the Music Industry!(more on them later)
 
-![I still can't believe this album exists...](https://quoteunquoterecords.com/images/albums/jr/012.jpg)
+![I still can't believe this album exists...](http://www.quoteunquoterecords.com/qur113/cover.jpg)
 
 Of course, while Jeff Rosenstock’s lasting presence in the punk scene makes it very easy to focus on him, it should not be forgotten that this is not a Jeff Rosenstock album, but an Arrogant Sons of Bitches album. It was the efforts of all involved that produced such a powerhouse of an album, and though I might focus on Jeff in much of what I write throughout this retrospective, I don’t want to understate how many people put work into the production (the people thanked in the notes make up an absolute crowd). The recording of such a musical behemoth must have required a herculean effort from all sides. 
 
@@ -141,7 +142,7 @@ It is far more obvious to me now than it was ten years ago that this album was a
 
 Bomb the Music Industry! Developed a cult following as an iconoclastic collective of musicians who were obviously in it for the fun more than the money. They spat on many of the conventions of the music scene, eschewing formal merchandise for hand-made products and releasing all of their music for free under Jeff’s own label Quoteunquote records. Their ethics, eclectic musical style, and energetic live performances amassed a large underground fan base, and when they finally broke up, they did so after releasing another opus, “Vacation” (Jeff really has a knack for making the last album one of his groups releases an absolute banger).
 
-![wowowowow good album](https://quoteunquoterecords.com/images/albums/btmi/008.png)
+![wowowowow good album](https://quoteunquoterecords.com/qur051/cover.png)
 
 If we look at what what made BtMI! so popular, it’s clear that so many of these ideas show their foundations on 3CfD. The disdain for the music industry is there, as well as the delight in pulling in as many influences and instruments as possible. Really, you could summarize a handful of the tracks off of 3CfD with the words “bomb the music industry” and it wouldn’t be inaccurate. Taking a closer look at 3CfD has given me, a huge fan of Jeff Rosenstock and all his musical work, a greater appreciation for the album and its place in the timeline of his career.
 
