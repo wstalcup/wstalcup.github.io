@@ -173,7 +173,7 @@ So boom, there it is, the secret to the timeless appeal of the album, why I look
 
 I am not the only person who loves this album. In fact, I distinctly recall one of my earliest motivations to seek out _Three Cheers for Disappointment_ was a YouTube comment below the music video for “So let’s go nowhere,” which stated: “This is one of the best albums of all time.” Below, I have included some reviews from friends and family of mine:
 
-My brother Brad says:
+**My brother Brad says:**
 
 Perhaps the thing you'll notice on a first listen of this album is the breakneck pace.  This album is a rush.  Put this album on and drink deeply from a fountain of adrenaline.
 
