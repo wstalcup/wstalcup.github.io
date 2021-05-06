@@ -142,7 +142,7 @@ Thanks for reading over some of my favorite parts. I know this thing is too damn
 
 
 <p align ="center">
-  <img width="300" height="225" src="(https://quoteunquoterecords.com/images/bands/btmibands.jpg">
+  <img width="300" height="225" src="https://quoteunquoterecords.com/images/bands/btmibands.jpg">
 </p>
 
 
