@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Album Retrospective: Three Cheers for Disappointment
+title: Album Retrospective - Three Cheers for Disappointment
 published: true
 comments: true
 ---
