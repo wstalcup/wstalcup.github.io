@@ -180,7 +180,7 @@ Perhaps the thing you'll notice on a first listen of this album is the breakneck
 
 On a second listen maybe you'll appreciate the diversity of genre.  From the crass party blowers at the start to the sonorous chimes at the end, you'll appreciate Jeff Rosenstock's breadth of musical vision.
 
-On a third listen, you will probably begin to appreciate the raw and unfiltered stream of consciousness that is Jeff's songwriting.  This album is entirely appropriate for the pubescent male whose newfound energy for life often manifests in crests and crashes of emotion.  But the brilliance of Jeff Rosenstock doesn't only apply to the hormone-overloaded. For the rest of us, he puts an unvarnished and authentic voice to those emotional movements that we've learned to keep hidden since our pubescence.  He gives a voice to the spiritual, social, and emotional landscape of our times.
+On a third listen, you will probably begin to appreciate the raw and unfiltered stream of consciousness that is Jeff's songwriting.  This album is entirely appropriate for the adolescent whose newfound energy for life often manifests in crests and crashes of emotion.  But the brilliance of Jeff Rosenstock doesn't only apply to the hormone-overloaded. For the rest of us, he puts an unvarnished and authentic voice to those emotional movements that we've learned to keep hidden since our pubescence.  He gives a voice to the spiritual, social, and emotional landscape of our times.
 
 On the fourth through thousandth listens, don't expect to get bored, either.  New insights and gems surface every playthrough.
 
