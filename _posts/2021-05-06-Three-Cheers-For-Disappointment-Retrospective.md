@@ -26,7 +26,10 @@ Along with the chaos came a strong sense of relatability. ASoB’s music comes o
 
 It is impossible to talk about ASoB without mentioning that their front man was Jeff Rosenstock, a beloved figure in the DIY punk scene who continues to release new music as of 2021 – his most recent album, SKA DREAM, is my album of the year for 2021. ASoB was the first leg of Jeff’s career, and _Three Cheers for Disappointment_ was its swansong. The recording of this album was long, tumultuous, and ostensibly broke up the band. There was a breaking point, here, but when the dust finally settled and the album was released, it was a chaotic, bombastic masterpiece of high-octane ska that encapsulates the untamed identity that ASoB had carved for themselves. In many ways, this album serves as an explanation of Jeff’s motivations as he moved on to his next musical project, Bomb the Music Industry!(more on them later)
 
-![I still can't believe this album exists...](http://www.quoteunquoterecords.com/qur113/cover.jpg)
+
+<p align ="center">
+  <img width="350" height="350" src="http://www.quoteunquoterecords.com/qur113/cover.jpg">
+</p>
 
 Of course, while Jeff Rosenstock’s lasting presence in the punk scene makes it very easy to focus on him, it should not be forgotten that this is not a Jeff Rosenstock album, but an Arrogant Sons of Bitches album. It was the efforts of all involved that produced such a powerhouse of an album, and though I might focus on Jeff in much of what I write throughout this retrospective, I don’t want to understate how many people put work into the production (the people thanked in the notes make up an absolute crowd). The recording of such a musical behemoth must have required a herculean effort from all sides. 
 
@@ -136,7 +139,12 @@ Thanks for reading over some of my favorite parts. I know this thing is too damn
 
 ## Part 3 – Themes, or Jeff, The Music Industry, and a Tale of Disappointment
 
-![Jeff and btmi, a bunch of qts](https://quoteunquoterecords.com/images/bands/btmibands.jpg)
+
+
+<p align ="center">
+  <img width="300" height="225" src="(https://quoteunquoterecords.com/images/bands/btmibands.jpg">
+</p>
+
 
 If you’re still with me after that overly-detailed look at the songs and their lyrics, thank you. If you skipped to this part, that’s okay, too. I want to summarize and synthesize what I’ve learned from looking closely at the lyrics, mainly from two perspectives: the first is what this album says about Jeff Rosenstock and his development from Arrogant Son of Bitch to Bomber of the Music Industry, and the second is what this album said to me as an adolescent with the volume turned all the way up.
 
@@ -144,7 +152,10 @@ It is far more obvious to me now than it was ten years ago that this album was a
 
 Bomb the Music Industry! Developed a cult following as an iconoclastic collective of musicians who were obviously in it for the fun more than the money. They spat on many of the conventions of the music scene, eschewing formal merchandise for hand-made products and releasing all of their music for free under Jeff’s own label Quoteunquote records. Their ethics, eclectic musical style, and energetic live performances amassed a large underground fan base, and when they finally broke up, they did so after releasing another opus, “Vacation” (Jeff really has a knack for making the last album one of his groups releases an absolute banger).
 
-![wowowowow good album](https://quoteunquoterecords.com/qur051/cover.png)
+
+<p align ="center">
+  <img width="350" height="350" src="http://www.quoteunquoterecords.com/qur051/cover.png">
+</p>
 
 If we look at what what made BtMI! so popular, it’s clear that so many of these ideas show their foundations on 3CfD. The disdain for the music industry is there, as well as the delight in pulling in as many influences and instruments as possible. Really, you could summarize a handful of the tracks off of 3CfD with the words “bomb the music industry” and it wouldn’t be inaccurate. Taking a closer look at 3CfD has given me, a huge fan of Jeff Rosenstock and all his musical work, a greater appreciation for the album and its place in the timeline of his career.
 
