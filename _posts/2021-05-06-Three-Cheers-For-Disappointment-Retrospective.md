@@ -1,30 +1,29 @@
 ---
-layout: post
-title: Album Retrospective: Three Cheers for Disappointment
-published: true
-comments: true
+published: false
 ---
 
-No album is closer to my heart than The Arrogant Sons of Bitches’ (ASoB) 2006 Ska-punk masterpiece Three Cheers for Disappointment (when brevity is desired, henceforth 3CfD). This album, to me, is high school. It doesn’t remind me of high school or make me nostalgic for high school, it is high school. Junior year, one day, I went on a field trip to some museum or another. That entire day, I listened to 3CfD. I bragged to a friend later that it was 13 times in a row (about 7 hours of nonstop 3CfD). I got in trouble in class for listening to music too loudly after finishing a calculus test – my dollar store earbuds bled noise when you cranked the volume too high. I remember my teacher yelling “whoever is listening to that godawful screaming, please turn it down.” It was track 2 of 3CfD. My bus ride to school was a little over an hour long – just long enough to get through two full listens of 3CfD. I remarked once, when discussing tattoos with a crush, that if I had to get a tattoo then and there, it would be of the lyrics “Three cheers for all the summer days,” the climactic line of the last track of the album, the most cathartic line I’ve ever heard in music. I listened to it in the shower, on the bus, during lunch, after school. If I could be listening to the album, I was. To call it a soundtrack to my life would be to understate my obsession. I probably heard Jeff Rosenstock’s voice more than my own (and considering my adoration for my own voice, that should be shocking).
+No album is closer to my heart than The Arrogant Sons of Bitches’ (ASoB) 2006 Ska-punk masterpiece _Three Cheers for Disappointment_ (when brevity is desired, henceforth 3CfD). This album, to me, is high school. It doesn’t remind me of high school or make me nostalgic for high school, it is high school. Junior year, one day, I went on a field trip to some museum or another. That entire day, I listened to 3CfD. I bragged to a friend later that it was 13 times in a row (about 7 hours of nonstop 3CfD). I got in trouble in class for listening to music too loudly after finishing a calculus test – my dollar store earbuds bled noise when you cranked the volume too high. I remember my teacher yelling “whoever is listening to that godawful screaming, please turn it down.” It was track 2 of 3CfD. My bus ride to school was a little over an hour long – just long enough to get through two full listens of 3CfD. I remarked once, when discussing tattoos with a crush, that if I had to get a tattoo then and there, it would be of the lyrics “Three cheers for all the summer days,” the climactic line of the last track of the album, the most cathartic line I’ve ever heard in music. I listened to it in the shower, on the bus, during lunch, after school. If I could be listening to the album, I was. To call it a soundtrack to my life would be to understate my obsession. I probably heard Jeff Rosenstock’s voice more than my own (and considering my adoration for my own voice, that should be shocking).
 Like I said, to me, 3CfD is high school.
 I look back now, with ten years of context and growth, in musical taste and maturity, and still, the album rings in my brain whenever I’m feeling a moment of angst or a burst of indignation. These moments in my life got me thinking about why this album worked – and continues to work - so well for me; why it still works as a release valve for those emotions we so strongly associate with high school – frustration, petulance, confusion, loneliness. And now, ten years after I first listened to the album and fifteen years after its release, I figured there’s no better time to go back over it, dissect its lyrics, music, and meaning, and reflect on the highs and lows of one of my favorite albums of all time. 
 
 -----
 
-Part 1 – Genesis, or The People Behind the Album:
+## Part 1 – Genesis, or The People Behind the Album:
 
-The Arrogant Sons of Bitches were a 6-piece Long Island-based DIY Ska-Punk band that made waves in the ska scene early in the 2000s, most notably for their DIY punk ethic(From the liner notes of 3CfD: “I recorded some sax, percussion and vocal parts in various bathrooms, bedrooms and friends’ practice spaces”) and high energy live performances. They self-released their first two albums before releasing Three Cheers for Disappointment under Killnormal records. Their sound is a standout example of east coast ska-punk, with its raw, hardcore stylings as compared to the west coast style of poppier, upbeat party tracks (a la No Doubt and Reel Big Fish). Now, they are probably best remembered for their unapologetically crass band name and wild, untamed music, as well as for being the launching point of Jeff Rosenstock’s career. 
+The Arrogant Sons of Bitches were a 6-piece Long Island-based DIY Ska-Punk band that made waves in the ska scene early in the 2000s, most notably for their DIY punk ethic(From the liner notes of 3CfD: “I recorded some sax, percussion and vocal parts in various bathrooms, bedrooms and friends’ practice spaces”) and high energy live performances. They self-released their first two albums before releasing _Three Cheers for Disappointment_ under Killnormal records. Their sound is a standout example of east coast ska-punk, with its raw, hardcore stylings as compared to the west coast style of poppier, upbeat party tracks (a la No Doubt and Reel Big Fish). Now, they are probably best remembered for their unapologetically crass band name and wild, untamed music, as well as for being the launching point of Jeff Rosenstock’s career. 
 
 Along with the chaos came a strong sense of relatability. ASoB’s music comes off as human, unpretentious, and genuine. It sounds like a bunch of high school friends throwing down, because that’s what it was(“We got a case or two of beer, invited all of our friends down and we had a very difficult time getting things done”). The band started as a couple of friends playing Green Day covers together, and I swear I can hear that in their music. Like a good, old-fashioned friendship, it’s crass, confrontational, familiar, and friendly. 
 
-It is impossible to talk about ASoB without mentioning that their front man was Jeff Rosenstock, a beloved figure in the DIY punk scene who continues to release new music as of 2021 – his most recent album, SKA DREAM, is my album of the year for 2021. ASoB was the first leg of Jeff’s career, and Three Cheers for Disappointment was its swansong. The recording of this album was long, tumultuous, and ostensibly broke up the band. There was a breaking point, here, but when the dust finally settled and the album was released, it was a chaotic, bombastic masterpiece of high-octane ska that encapsulates the untamed identity that ASoB had carved for themselves. In many ways, this album serves as an explanation of Jeff’s motivations as he moved on to his next musical project, Bomb the Music Industry!(more on them later)
+It is impossible to talk about ASoB without mentioning that their front man was Jeff Rosenstock, a beloved figure in the DIY punk scene who continues to release new music as of 2021 – his most recent album, SKA DREAM, is my album of the year for 2021. ASoB was the first leg of Jeff’s career, and _Three Cheers for Disappointment_ was its swansong. The recording of this album was long, tumultuous, and ostensibly broke up the band. There was a breaking point, here, but when the dust finally settled and the album was released, it was a chaotic, bombastic masterpiece of high-octane ska that encapsulates the untamed identity that ASoB had carved for themselves. In many ways, this album serves as an explanation of Jeff’s motivations as he moved on to his next musical project, Bomb the Music Industry!(more on them later)
 
 Of course, while Jeff Rosenstock’s lasting presence in the punk scene makes it very easy to focus on him, it should not be forgotten that this is not a Jeff Rosenstock album, but an Arrogant Sons of Bitches album. It was the efforts of all involved that produced such a powerhouse of an album, and though I might focus on Jeff in much of what I write throughout this retrospective, I don’t want to understate the efforts of all those involved in the production. The recording of such a musical behemoth must have required a herculean effort from all sides. 
 
-Before I get into the music itself, I want to present an excerpt from the original liner notes of the album(found here: ) to give a sense of the type of band ASoB was. I strongly recommend anyone who is at all interested in ASoB or 3CfD give the notes a full read-through. The context they provide to the album adds another layer of enjoyment to the music. For now, though, just this bit should put you in the right frame of mind to dive into Three Cheers for Disappointment:
+Before I get into the music itself, I want to present an excerpt from the original liner notes of the album(found here: ) to give a sense of the type of band ASoB was. I strongly recommend anyone who is at all interested in ASoB or 3CfD give the notes a full read-through. The context they provide to the album adds another layer of enjoyment to the music. For now, though, just this bit should put you in the right frame of mind to dive into _Three Cheers for Disappointment_:
 “I would like to invite you, the listener, the reader, to create a new underground. One where we actually don’t have to follow any sets of rules. One where we don’t have to be controlled by anyone but ourselves. This is an album about breaking out of that old system. Hope you enjoy it fucker.”
 
-Interlude: What’s in a (song) name?:
+-----
+
+### Interlude: What’s in a (song) name?:
 
 Those unfamiliar with 3CfD or Jeff Rosenstock’s discography in general will quickly notice that he has a particular naming sense. The two names I’ve associated with him so far, The Arrogant Sons of Bitches and Bomb the Music Industry! Should be an indicator that the man has an appreciation for shocking, abrasive names. We get to see many of those names on 3CfD, clever, profane, and confusing. Below, I have provided a ranking from worst to best of the song titles of 3CfD, with a brief explanation for the placement on the list:
 
@@ -40,9 +39,11 @@ Those unfamiliar with 3CfD or Jeff Rosenstock’s discography in general will qu
 4. Rocketrocketrocketship - scientifically, 3 rockets is the perfect amount. The doctoral thesis is forthcoming on my research.   
 3. I’ve got Enemies in High Places - A bit punchier than the other inversion of the classic statement: “I’ve got friends in low places,” which calls to mind little but subterranean allies.   
 2. People Pops and Fudgesickles for the Hit Factory - the commodification of music rendered into clever imagery. Brilliant.   
-1. (I Must Be a Proctologist Because) All I Do is Deal With Assholes - Fantastic as a one liner and extremely topical. We have a winner.   
+1. (I Must Be a Proctologist Because) All I Do is Deal With Assholes - Fantastic as a one liner and extremely topical. We have a winner.
 
-Part 2: The Meat of this Thing, or A Song-by-Song look at The Lyrics and Music:
+-----
+
+## Part 2: The Meat of this Thing, or A Song-by-Song look at The Lyrics and Music:
 
 A shrill mish-mash of horns, a countdown from ten, and it’s a galloping start on “The Last Bell I Will Ever Hear”. Jeff, angry at a relationship, is sick of being controlled and laments the collapse with a decisive “if I never see you again it’ll be too soon!” Into the next track, “(I Must Be a Proctologist Because) All I Do is Deal With Assholes,” Jeff calls out the fake friends who will, even in his death, use him for sympathy. In a particularly clever moment he screams:
 And when I’m gone tomorrow, you’ll talk to your new shiny friends and you’ll lie when you claim to care:   
@@ -88,7 +89,9 @@ The penultimate track, “Yeah, I don’t Know What It’s Like to Be Around a B
 
 And that’s the end of the album. Well, not quite. After the smash-out of “Last on my List,” there’s a spoken coda: “One more, one more track!” as if even the band is greedy for just another song of brilliance from this thing. When the album ends there, there’s nothing to do but start back from track 1, listen to that mish-mash of horns and countdown from ten, and start the whole thing over again.
 
-Interlude: Stray Thoughts About Songs
+-----
+
+### Interlude: Stray Thoughts About Songs
 
 In an effort to streamline part 2 of this review, I refrained from pointing out every single part of 3CfD that I adore. So in this section, I want to take a moment to touch on some of my favorite moments I didn’t mention before.
 
@@ -116,7 +119,9 @@ There’s so much to say about emotions contained within “Last on my List” t
 
 Thanks for reading over some of my favorite parts. I know this thing is too damn long already, but if I’m gonna write about this album, I’m not skimping on the details. 
 
-Part 3 – Themes, or Jeff, The Music Industry, and a Tale of Disappointment
+-----
+
+## Part 3 – Themes, or Jeff, The Music Industry, and a Tale of Disappointment
 
 If you’re still with me after that overly-detailed look at the songs and their lyrics, thank you. If you skipped to this part, that’s okay, too. I want to summarize and synthesize what I’ve learned from looking closely at the lyrics, mainly from two perspectives: the first is what this album says about Jeff Rosenstock and his development from Arrogant Son of Bitch to Bomber of the Music Industry, and the second is what this album said to me as an adolescent with the volume turned all the way up.
 
@@ -128,15 +133,17 @@ If we look at what what made BtMI! so popular, it’s clear that so many of thes
 
 But for me, the angry high school student of 2011, none of that mattered. At that time I knew vaguely of Jeff’s later work (“I don’t love you anymore” was a youtube recommendation from something ASoB related), but I didn’t care about context or punk ethics back then. I liked ska because it connected two of my passions: the trumpet and being angry at the world. So while I didn’t connect to Jeff’s specific anger at the music industry, I did connect with his anger in general.
 
-And if there’s one word to describe Three Cheers for Disappointment, it’s ‘angry’. Jeff’s spouting anger at anyone who will listen about any topic he can think of. Of course, much of his anger was informed by his experiences in a band, but even that anger I could connect with. After all, what is anger at the music industry but frustration at a system holding you back with its rigidity, rules, and expectations? If there is one thing any high school student understands, it’s throwing a tantrum about rules and the man holding you down. 
+And if there’s one word to describe _Three Cheers for Disappointment_, it’s ‘angry’. Jeff’s spouting anger at anyone who will listen about any topic he can think of. Of course, much of his anger was informed by his experiences in a band, but even that anger I could connect with. After all, what is anger at the music industry but frustration at a system holding you back with its rigidity, rules, and expectations? If there is one thing any high school student understands, it’s throwing a tantrum about rules and the man holding you down. 
 
 I strongly associate that disdain for systems of authority with high school, and I think that’s why 3CfD worked so well for me then. But is that feeling of pushing back against the system really unique to high school? Probably not, and that’s probably why the album continues to inspire me in moments of frustration at the bounds of a system. I think Jeff understood this too. Going back to the liner notes, he says: “What I remembered is that when I wrote this album that it was less a series of complaints and a stream of anger than it was a story about something I feel we all go through when we finally get out of high school and we are inundated with the feeling that we’re free from rules. […] We are not a part of the system we all hated. Year’s later, I am still having trouble dealing with the fact that I am still part of the system that we all hated. The truth is the minute you feel you’re breaking free of the big thing that is holding you down, you’re already locked up again.”
 
 So boom, there it is, the secret to the timeless appeal of the album, why I look back on so much more fondly than much of the other music I enjoyed in high school. The feelings on this thing are raw and universal. I felt the anger and indignation most strongly in high school, but just about everyone feels that grip of the system occasionally, limiting and restricting your movement while you struggle against it. And in those moments, I hear Jeff’s voice shouting in the back of my mind. Of course, those feelings wouldn’t land if the music wasn’t so damn good, but you already saw my feelings on the music in part 2 of this review.
 
-Interlude: Reviews from smarter people than me
+-----
 
-I am not the only person who loves this album. In fact, I distinctly recall one of my earliest motivations to seek out Three Cheers for Disappointment was a YouTube comment below the music video for “So let’s go nowhere,” which stated: “This is one of the best albums of all time.” Below, I have included some reviews from friends and family of mine:
+### Interlude: Reviews from smarter people than me
+
+I am not the only person who loves this album. In fact, I distinctly recall one of my earliest motivations to seek out _Three Cheers for Disappointment_ was a YouTube comment below the music video for “So let’s go nowhere,” which stated: “This is one of the best albums of all time.” Below, I have included some reviews from friends and family of mine:
 
 My brother Brad says:
 
@@ -148,7 +155,8 @@ On a third listen, you will probably begin to appreciate the raw and unfiltered 
 
 On the fourth through thousandth listens, don't expect to get bored, either.  New insights and gems surface every playthrough.
 
-Part 4 – Conclusion, or 10 Years later, Still Giving Cheers to Disappointment
+-----
 
-When I decided to write this retrospective, I wanted to bask in the nostalgia of high school and communicate my fondness for this album in a medium where no one can tell me to shut up if I go on for too long. I did not expect this retrospective to be 5000 words, nor do I regret putting those words on the page. I love this album as a catastrophe of anger and growth. There’s such a density of music and ideas that each time I come back, I can hear something new, understand something better. I can, and above did, talk about it for literally thousands of words. I listened to 3CfD dozens of times while drafting this retrospective, and I can conclude firmly that I love it more now than I did when I started writing this retrospective. At the beginning of this retrospective, I wrote that to me, Three Cheers for Disappointment represents high school. That will always be true. Now, after reflecting on it an unhealthy amount, I start to better understand exactly why this is the case. Few albums are better portrayals of going through anger, growth, and tragedy through unforgiving systems, failing friendships, and this sour set of circumstances that we call life. Call it high school, call it growing up, call it living in this world. As we live through each day, there’s nothing to do but throw up our arms and offer three loud, angry cheers for disappointment.
+## Part 4 – Conclusion, or 10 Years later, Still Giving Cheers to Disappointment
 
+When I decided to write this retrospective, I wanted to bask in the nostalgia of high school and communicate my fondness for this album in a medium where no one can tell me to shut up if I go on for too long. I did not expect this retrospective to be 5000 words, nor do I regret putting those words on the page. I love this album as a catastrophe of anger and growth. There’s such a density of music and ideas that each time I come back, I can hear something new, understand something better. I can, and above did, talk about it for literally thousands of words. I listened to 3CfD dozens of times while drafting this retrospective, and I can conclude firmly that I love it more now than I did when I started writing this retrospective. At the beginning of this retrospective, I wrote that to me, _Three Cheers for Disappointment_ represents high school. That will always be true. Now, after reflecting on it an unhealthy amount, I start to better understand exactly why this is the case. Few albums are better portrayals of going through anger, growth, and tragedy through unforgiving systems, failing friendships, and this sour set of circumstances that we call life. Call it high school, call it growing up, call it living in this world. As we live through each day, there’s nothing to do but throw up our arms and offer three loud, angry cheers for disappointment.
