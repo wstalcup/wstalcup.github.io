@@ -32,25 +32,26 @@ Before I get into the music itself, I want to present an excerpt from the origin
 
 Those unfamiliar with 3CfD or Jeff Rosenstock’s discography in general will quickly notice that he has a particular naming sense. The two names I’ve associated with him so far, The Arrogant Sons of Bitches and Bomb the Music Industry! Should be an indicator that the man has an appreciation for shocking, abrasive names. We get to see many of those names on 3CfD, clever, profane, and confusing. Below, I have provided a ranking from worst to best of the song titles of 3CfD, with a brief explanation for the placement on the list:
 
-13. 1-800-ALARM-ME - One of these had to be in last place, and I settled for this one. The song’s still brilliant though.   
-12. Have Fun Rotting by Yourself - Angry and spiteful, but not as clever as some of the others.   
-11. The Last Bell I Will Ever Hear - you say it’s the last bell, ASoB, yet it’s the first song on the album???????   
-10. Last on My List - It’s difficult to provide any commentary on this song name when I understand the context, so I’ll just say I like it.   
-9. “Yeah, I Don’t Know What It’s Like to Be Around a Bunch of Hipsters” - I figure this one might rank higher if I knew the context of the quote, and who said it.   
-8. Piss Off - Simple. To the point. Not bad   
-7. So Let’s go Nowhere - Somehow, the ethos of the song is perfectly captured in these four words.   
-6. Kill the President - it was difficult to explain to my mom why I googled “kill the president” on our family computer   
-5. Disappointment at the Taco Bell - truly there is a specific variety of disappointment that can only be felt at fast food establishments after 2 AM   
-4. Rocketrocketrocketship - scientifically, 3 rockets is the perfect amount. The doctoral thesis is forthcoming on my research.   
-3. I’ve got Enemies in High Places - A bit punchier than the other inversion of the classic statement: “I’ve got friends in low places,” which calls to mind little but subterranean allies.   
-2. People Pops and Fudgesickles for the Hit Factory - the commodification of music rendered into clever imagery. Brilliant.   
-1. (I Must Be a Proctologist Because) All I Do is Deal With Assholes - Fantastic as a one liner and extremely topical. We have a winner.
+* 1-800-ALARM-ME - One of these had to be in last place, and I settled for this one. The song’s still brilliant though.   
+* Have Fun Rotting by Yourself - Angry and spiteful, but not as clever as some of the others.   
+* The Last Bell I Will Ever Hear - you say it’s the last bell, ASoB, yet it’s the first song on the album???????   
+* Last on My List - It’s difficult to provide any commentary on this song name when I understand the context, so I’ll just say I like it.   
+* “Yeah, I Don’t Know What It’s Like to Be Around a Bunch of Hipsters” - I figure this one might rank higher if I knew the context of the quote, and who said it.   
+* Piss Off - Simple. To the point. Not bad   
+* So Let’s go Nowhere - Somehow, the ethos of the song is perfectly captured in these four words.   
+* Kill the President - it was difficult to explain to my mom why I googled “kill the president” on our family computer   
+* Disappointment at the Taco Bell - truly there is a specific variety of disappointment that can only be felt at fast food establishments after 2 AM   
+* Rocketrocketrocketship - scientifically, 3 rockets is the perfect amount. The doctoral thesis is forthcoming on my research.   
+* I’ve got Enemies in High Places - A punchy inversion of "I've got friends in high places." Usually, big shots for enemies is not something to brag about, but it works here.     
+* People Pops and Fudgesickles for the Hit Factory - the commodification of music rendered into clever imagery. Brilliant.   
+* (I Must Be a Proctologist Because) All I Do is Deal With Assholes - Fantastic as a one liner and extremely topical. We have a winner.
 
 -----
 
 ## Part 2: The Meat of this Thing, or A Song-by-Song look at The Lyrics and Music:
 
 A shrill mish-mash of horns, a countdown from ten, and it’s a galloping start on “The Last Bell I Will Ever Hear”. Jeff, angry at a relationship, is sick of being controlled and laments the collapse with a decisive “if I never see you again it’ll be too soon!” Into the next track, “(I Must Be a Proctologist Because) All I Do is Deal With Assholes,” Jeff calls out the fake friends who will, even in his death, use him for sympathy. In a particularly clever moment he screams:   
+
 And when I’m gone tomorrow, you’ll talk to your new shiny friends and you’ll lie when you claim to care:   
 “Let’s have a toast to our old friend.” “He’ll be there in our memories.”  
 Go fuck yourself I won’t waste my time there.  
