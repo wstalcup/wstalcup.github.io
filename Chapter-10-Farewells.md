@@ -168,7 +168,7 @@ After the funeral, they began their journey east.
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/11)
 
 [Table of Contents](/novel/)
 
