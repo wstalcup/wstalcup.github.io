@@ -11,7 +11,7 @@ An excerpt from _My History, Memoirs of a Historian_
 
 -----
 
-The voice broke the silence of their meal.
+A voice broke the silence of their meal.
 
 “Do you mind if we join you for dinner?”
 
@@ -59,7 +59,7 @@ The trio drew nearer, and Sycamore released his hold of the wind, frowning at hi
 
 Mrs. Maple spoke when they had taken up a weary rest around the fire. “I apologize for our rudeness. This has been a... trying set of days for us.” She filled her bowl with the soup, passing it around to one of the newcomers. Sycamore, his bowl now empty, offered his as well, and with Pike’s, all three soon had food in front of them.
 
-After a frantic moment of slurping down the soup, the center man spoke, “I gathered as much listening to the boys’ words. There’s no need for apology, we came to you in darkness and looking like bandits, so I think your caution was well placed.” He handed the bowl to Mrs. Maple with a grateful nod, and she refilled it and handed it back. “The name’s Granite,” He said, “And my fellows are Marrow and Perch.” He gestured to the two other men before returning to his soup. The older man, Marrow, still glared at Sycamore, even as he ate his soup. Sycamore swallowed, trying to avoid looking at the man but feeling uncomfortable in his attention.
+After a frantic moment of slurping down the soup, the center man spoke, “I gathered as much listening to the boys’ words. There’s no need for apology, we came to you in darkness and looking like bandits, so I think your caution was well placed.” He handed the bowl to Mrs. Maple with a grateful nod, and she refilled it and handed it back. “The name’s Granite,” He said, “And my fellows are Marrow and Perch.” He gestured to the two others before returning to his soup. The older man, Marrow, still glared at Sycamore, even as he ate his soup. Sycamore swallowed, trying to avoid looking at the man but feeling uncomfortable in his attention.
 
 “So what led you to be so starved on the West Road?” Pike asked. With the tension of his argument with Lupin passed, he had returned to his pleasant self, and he offered a friendly smile to the newcomers as they worked through their soup.
 
@@ -75,7 +75,7 @@ Pike nodded respectfully, but continued his effort at a conversation, “Could y
 
 “And what of the Westfolk boy?” Perch asked. She was the youngest of the trio, about Jackdaw’s age. “How did you come upon him? Is he, like us, another traveler? You should be careful with his type, they’re prone to tricks, even if he can’t speak our tongue.”
 
-Sycamore, who was only half-paying attention to the conversation as he studiously ignored Marrow’s incessant glare, belatedly realized that he had not yet spoken a word since the men had come upon them.
+Sycamore, who was only half-paying attention to the conversation as he studiously ignored Marrow’s incessant glare, belatedly realized that he had not yet spoken a word since the trio had come upon them.
 
 “Ah, no, I speak Hillfolk,” He cut in with an awkward tone, “In fact, we’re from the same clan.”
 
