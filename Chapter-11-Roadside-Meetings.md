@@ -79,7 +79,7 @@ Sycamore, who was only half-paying attention to the conversation as he studiousl
 
 “Ah, no, I speak Hillfolk,” He cut in with an awkward tone, “In fact, we’re from the same clan.”
 
-Marrow bit off a muttered curse when Sycamore started to speak, and Walleye gave him an incredulous look. Granite, for his measure, was too distracted by his soup to give more than a mildly interested glance.
+Marrow bit off a muttered curse when Sycamore started to speak, and Perch gave him an incredulous look. Granite, for his measure, was too distracted by his soup to give more than a mildly interested glance.
 
 “I – I see,” Perch said. She turned back to Mrs. Maple, “Does your clan have many Westfolk in it?” There was skepticism on her face, suspicion.
 
