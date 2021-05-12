@@ -149,7 +149,7 @@ Meanwhile, Pike swung his spear in wide arcs, trying to keep his distance from t
 
 Fearing for his life, Sycamore turned towards the enemy, trying and failing to feel his connection to the wind. He let out a relieved sigh, collapsing on his haunches when he saw pike standing over axe-wielding bandit, his broken spear thrust between the man’s ribs. Lupin was seated panting on the ground next to the corpse of the second sword-wielder. Marrow sat between the bodies of the cudgel-user and the first sword-wielder, cradling his ruined wrist in his lap. If Granite and Walleye had handled the bandit with the dagger, that meant all were accounted for.
 
-“Sycamore!” Mrs. Maple called out in a frantic voice. Sycamore whirled to where she was standing, fearing for the safety of Hickory of Mist. He moved towards her as fast as he could, pushing off the daze from the fight. She was huddled over Walleye, who had a pale, vacant look on his face. Her hand was pressed to his throat, and blood flowed between her fingers, covering her.
+“Sycamore!” Mrs. Maple called out in a frantic voice. Sycamore whirled to where she was standing, fearing for the safety of Hickory or Mist. He moved towards her as fast as he could, pushing off the daze from the fight. She was huddled over Walleye, who had a pale, vacant look on his face. Her hand was pressed to his throat, and blood flowed between her fingers, covering her.
 
 “Are we okay?” Walleye muttered, “Is everyone safe?” His voice was breathless, weak.
 
