@@ -40,7 +40,7 @@ Sycamore flinched at the volume, and was surprised when none of the others awoke
 
 The explanations over the sanctum in the hill and the nature of the Magus had consumed much of their first morning. When, finally, understanding and acceptance had been reached, they’d further argued over how long to spend in hiding. Unsurprisingly, Lupin was heavily in favor of leaving as soon as possible to pursue his revenge. Mrs. Maple advocated patience to protect the safety of her family. Pike and Sycamore lay somewhere in the middle, conflicted for all sorts of reasons. Sycamore saw in his friend the warring interests of concern for the children and concern for his brother. Sycamore felt the urgency of helping his family pull against the dread of confronting the corpses in the village again.
 
-In the end, they decided to hide for three days in the sanctum before travelling east to Whitebrook. They would ask for aid, appeal for martial help to rescue their clan. Lupin hated the idea, but was eventually convinced when Pike smartly pointed out that they'd have little chance of success with such a small group.
+In the end, they decided to hide for three days in the sanctum before travelling east to the city of Whitebrook. They would ask for aid, appeal for martial help to rescue their clan. Lupin hated the idea, but was eventually convinced when Pike smartly pointed out that they'd have little chance for success in his revenge with so few people.
 
 “For a time, they were happy. The old woman raised Starlight as her son. He grew quickly, helping around their farm and filling the old woman’s days with laughter and love. But then, one day, the old woman fell ill.”
 
