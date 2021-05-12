@@ -73,7 +73,7 @@ Pike nodded respectfully, but continued his effort at a conversation, “Could y
 
 “Whitebrook as well,” Mrs. Maple said. “Though the more I see, the less sure I am that they will make time for us.”
 
-“And what of the Westfolk boy?” Walleye asked. She was the youngest of the trio, about Jackdaw’s age. “How did you come upon him? Is he, like us, another traveler? You should be careful with his type, they’re prone to tricks, even if he can’t speak our tongue.”
+“And what of the Westfolk boy?” Perch asked. She was the youngest of the trio, about Jackdaw’s age. “How did you come upon him? Is he, like us, another traveler? You should be careful with his type, they’re prone to tricks, even if he can’t speak our tongue.”
 
 Sycamore, who was only half-paying attention to the conversation as he studiously ignored Marrow’s incessant glare, belatedly realized that he had not yet spoken a word since the men had come upon them.
 
@@ -81,7 +81,7 @@ Sycamore, who was only half-paying attention to the conversation as he studiousl
 
 Marrow bit off a muttered curse when Sycamore started to speak, and Walleye gave him an incredulous look. Granite, for his measure, was too distracted by his soup to give more than a mildly interested glance.
 
-“I – I see,” Walleye said. She turned back to Mrs. Maple, “Does your clan have many Westfolk in it?” There was skepticism on her face, suspicion.
+“I – I see,” Perch said. She turned back to Mrs. Maple, “Does your clan have many Westfolk in it?” There was skepticism on her face, suspicion.
 
 Mrs. Maple laughed lightly at her tone, “Sycamore is no more Westfolk than you or I. I’ve known him since he was just a babe, and he was present when this one was born.” She patted at Mist’s head as the girl played with a discarded spoon, shaking it around in one hand.
 
