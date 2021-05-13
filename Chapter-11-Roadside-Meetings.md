@@ -125,7 +125,7 @@ She chuckled lightly. “No, it’s fine. Granite’s spent a lot of time travel
 
 She paused, gnawing on a lip for a moment before continuing, “Not merchants ourselves, just travelling with merchants. Granite, Marrow, and I were – lucky enough to get away.” There was a pause there, some detail she didn’t want to reveal, but Sycamore had hardly told her all the details of his story, so he would not press. “It was a rough time getting away, and we feared pursuit, so we fled down the road back towards Whitebrook. Days later, we happened upon you. It’s a lucky thing, too. I’m not sure how much further we could have gone without a meal.” 
 
-Sycamore grunted understanding, not knowing how to respond. Her expression had clouded with distraction, memories of the harshness of reality. Sycamore understood. Recounting what the raid on the village brought him back to uncomfortable places, with the smell of ash and blood, the look of a man, dead by his hand. They finished their chore in silence.
+Sycamore grunted understanding, not knowing how to respond. Her expression had clouded with distraction, memories of the harshness of reality. Sycamore understood. Recounting the raid on the village brought him back to uncomfortable places, the smell of ash and blood, the look of a man, dead by his hand. They finished their chore in silence.
 
 ----
 
@@ -138,6 +138,7 @@ After finishing his meal, Marrow strode over to Lupin and spoke to him in a gruf
 Lupin glared up at him. “Don’t call me son!” He snapped, sliding the sword back into its sheath, “And I understand well enough: stab and slash them until they stop moving. Simple.”
 
 Marrow let out a bark of laughter, “Spoken like a true novice. To stab someone with a sword is perhaps simple enough, but to properly wield one, it’s the difference between piss and ale.”	
+
 Lupin flushed at the jab. “I take it you’re familiar with drinking both, then?” He said with a smirk.
 
 Marrow sneered at him, “They say the hound with the loudest bark has the dullest fang, and I see that to be true.”
