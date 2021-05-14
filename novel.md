@@ -21,5 +21,6 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 8 - Blood and Ash](/novel/8/)  
 [Chapter 9 - Where to Go, What to Do](/novel/9/)  
 [Chapter 10 - Farewells](/novel/10/)  
-[Chapter 11 - Roadside Meetings](/novel/11/)   
+[Chapter 11 - Roadside Meetings](/novel/11/)  
+[Chapter 12 - Fireside Confrontations](/novel/12/)   
 
