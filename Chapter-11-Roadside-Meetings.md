@@ -175,7 +175,7 @@ Sycamore shook his head, and the trio set off at a trot, looking for some target
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/12/)
 
 [Table of Contents](/novel/)
 
