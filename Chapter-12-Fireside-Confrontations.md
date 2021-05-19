@@ -171,7 +171,7 @@ Sycamore paused a long moment, sharing a look with Pike and Lupin. Pike shrugged
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/13/)
 
 [Table of Contents](/novel/)
 
