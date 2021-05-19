@@ -23,4 +23,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 10 - Farewells](/novel/10/)  
 [Chapter 11 - Roadside Meetings](/novel/11/)  
 [Chapter 12 - Fireside Confrontations](/novel/12/)   
-
+[Chapter 13 - A Muddy Arrival](/novel/13/)   
