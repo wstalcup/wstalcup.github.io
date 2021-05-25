@@ -169,7 +169,7 @@ The administrator studied him a long moment before responding. “No, it has not
 
 “Not unless you can find a member of the Whitebrook council to be your sponsor,” Moss said.
 
-“And can we speak to one of them?” Mrs. Maple asked hoepfully.
+“And can we speak to one of them?” Mrs. Maple asked hopefully.
 
 “I’m afraid the council are too busy to deal with every refugee seeking asylum,” Moss said. 
 
