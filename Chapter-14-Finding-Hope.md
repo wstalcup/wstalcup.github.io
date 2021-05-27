@@ -65,6 +65,7 @@ Sycamore stared at the cloud of smoke as it filtered upward and out the flap of 
 
 “Perhaps,” Sycamore said, watching that cloud of smoke swirl though the air. “And if that hope is insufficient-” Sycamore felt the movement of air in the drafty shelter, grabbed hold of it. With the flick of a finger and a surge of power, he sent the smoke out the front of their shack in a gust of air. “We’ll make our own.”
 
+-----
 
 Night fell as Sycamore wove between groups of huts along the makeshift, muddy paths of the shantytown. His boots caught in the mud, and every step was a heavy, slurping effort. The rain had died to a drizzle, a thousand tiny patters on his cloak’s thick hood. Sounds of life surrounded him, laughter and conversation proving that joy can exist in even the dreariest of settings.
 
@@ -167,3 +168,13 @@ Sockeye soundlessly moved his mouth for a moment as his eyes darted between Syca
 Sycamore thought a moment before nodding. “Let me take a look. I might be able to help you out,” He said. He paused for a though, and then added, “But first, your friend Cottonmouth was about to pay me for my healing, so give me a moment and we can go to your mother.”
 
 Perhaps Sycamore’s mother would not look kindly on taking money for healing, but she was not there to complain. She was captured by the Fireglass, imprisoned with the rest of his clan, so Sycamore had little choice but to take the chance offered to him. Sycamore smiled. It was a small thing, but he swore he could feel the beginnings of a breeze on his cheek.
+
+
+-----
+
+
+Next Chapter
+
+[Table of Contents](/novel/)
+
+[Previous Chapter](/novel/13/)
