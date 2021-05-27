@@ -186,7 +186,7 @@ A sigh escaped Moss’s lips before he responded to Granite. “I have heard man
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/14/)
 
 [Table of Contents](/novel/)
 
