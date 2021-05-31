@@ -25,3 +25,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 12 - Fireside Confrontations](/novel/12/)   
 [Chapter 13 - A Muddy Arrival](/novel/13/)   
 [Chapter 14 - Finding Hope](/novel/14/)   
+[Chapter 15 - the Destination of the Wind](/novel/15/)   
