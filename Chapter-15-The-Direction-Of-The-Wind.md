@@ -5,11 +5,11 @@ permalink: /novel/15/
 comments: true
 ---
 
-Chapter 15 – The Destination of the Wind
+_We walked through many of the skeletons of the Kingdoms’ eastward efforts. Old villages and outposts, dead from neglect or assault. Each of them told a story, and my eye was trained to discern it. The remnants spoke to me of fire or abandonment, and I connected these tales into a narrative of the downfall of human vanity. It was a bleak picture, but never bleaker than when the boy spotted some old bones tied to an oak post in the center of the village. He read the words under the display in a neutral voice: “Here hangs a heretic, his name discarded with his crimes. To taint the soul is to taint us all, and for his crimes he paid the price.” The boy paused to stare at the picture of Kingdom justice for a long while before we continued._
 
-We walked through many of the skeletons of the Kingdoms’ eastward efforts. Old villages and outposts, dead from neglect or assault. Each of them told a story, and my eye was trained to discern it. The remnants spoke to me of fire or abandonment, and I connected these tales into a narrative of the downfall of human vanity. It was a bleak picture, but never bleaker than when the boy spotted some old bones tied to an oak post in the center of the village. He read the words under the display in a neutral voice: “Here hangs a heretic, his name discarded with his crimes. To taint the soul is to taint us all, and for his crimes he paid the price.” The boy paused to stare at the picture of Kingdom justice for a long while before we continued.
+An excerpt from _My History, Memoirs of a Historian_
 
-An excerpt from My History, Memoirs of a Historian
+-----
 
 A smile naturally found itself to Sycamore’s face as he returned to their shack. After healing Cottonmouth he’d followed a chain of requests across the shantytown. His leather pouch hung heavily at his waist, full of copper coins. It still made him mildly uncomfortable to take money for his work, but he only asked for as much as his patients were willing to pay. In his mind this relieved some of the discomfort he felt at the transactions, though his mother would probably still give him a swift smack on the head if she heard about it.
 
