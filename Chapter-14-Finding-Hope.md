@@ -173,7 +173,7 @@ Perhaps Sycamore’s mother would not look kindly on taking money for healing, b
 -----
 
 
-Next Chapter
+[Next Chapter](/novel/15/)
 
 [Table of Contents](/novel/)
 
