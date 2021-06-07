@@ -161,7 +161,7 @@ Sycamore blinked. “How did you know we were here?”
 
 “From the sound of what you’ve been getting up to out here, I believe she’s not the only one who takes pride in her work,” Juniper said.
 
-Sycamore waved a hand dismissively, “Nonsense. I was taking advantage of these people, taking their money to heal them. My mother would sold me till my ears fell off if she heard as much.”
+Sycamore waved a hand dismissively, “Nonsense. I was taking advantage of these people, taking their money to heal them. My mother would scold me till my ears fell off if she heard as much.”
 
 Lupin scoffed before speaking, “Sycamore, you nearly killed yourself yesterday when you healed me. Take some pride in your work or I’ll become irritated.”
 
