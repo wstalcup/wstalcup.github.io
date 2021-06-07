@@ -205,7 +205,7 @@ There was a moment of stunned silence, and Sycamore found himself beginning to l
 -----
 
 
-Next Chapter
+[Next Chapter](/novel/17/)
 
 [Table of Contents](/novel/)
 
