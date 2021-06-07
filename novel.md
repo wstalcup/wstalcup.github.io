@@ -8,7 +8,7 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 
 ### Table of Contents
 
-#### Volume 1 - Sapling on the Plains
+#### Volume 1 - Fire on the Wind
 
 [Prologue - The Crimes of the Magus](/novel/prologue/)  
 [Chapter 1 - Hunting for Purpose](/novel/1/)  
@@ -25,5 +25,5 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 12 - Fireside Confrontations](/novel/12/)   
 [Chapter 13 - A Muddy Arrival](/novel/13/)   
 [Chapter 14 - Finding Hope](/novel/14/)   
-[Chapter 15 - The Cost of Kindness](/novel/15/)
+[Chapter 15 - The Cost of Kindness](/novel/15/)     
 [Chapter 16 - the Destination of the Wind](/novel/16/)   
