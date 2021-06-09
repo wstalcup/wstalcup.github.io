@@ -197,7 +197,7 @@ She waved a hand at him dismissively, “You’re young, Sycamore, advice from u
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/18/)
 
 [Table of Contents](/novel/)
 
