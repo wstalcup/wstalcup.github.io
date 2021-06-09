@@ -217,7 +217,7 @@ There was a frantic scribble of notes as the attendants recorded Sycamore’s fa
 
 “You may see it that way, but we have no responsibility to your clan,” The nasal voice said, “They pay no taxes to us, contribute nothing to the Whitebrook clan.”
 
-“There blood will be on your hands! Six hundred lives, because you denied me here!” He felt his hands shaking as he squeezed the podium in a desperate grip.
+“Their blood will be on your hands! Six hundred lives, because you denied me here!” He felt his hands shaking as he squeezed the podium in a desperate grip.
 
 “That’s enough, brat,” Lode called out, “Do not blame your clan’s weakness-”
 
