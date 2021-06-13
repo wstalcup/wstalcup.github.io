@@ -299,7 +299,7 @@ Sycamore, unsure of whether to regard the meeting as a success or failure, turne
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/19/)
 
 [Table of Contents](/novel/)
 
