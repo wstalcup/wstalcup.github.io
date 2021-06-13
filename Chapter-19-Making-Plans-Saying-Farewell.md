@@ -6,7 +6,7 @@ comments: true
 ---
 
 
-_At some point, the charms of the eastern ruins of the Kingdoms began to wear thin, and I wished longed for the comforts of a real bed. My companion, a woman born and raised in the capital, was quick to agree that the time had come for us to return westward. I was overjoyed when the boy agreed to continue travelling with us. I had become quite fond of his company. A farewell would have been a lonely occasion._
+_At some point, the charms of the eastern ruins of the Kingdoms began to wear thin, and I longed for the comforts of a real bed. My companion, a woman born and raised in the capital, was quick to agree that the time had come for us to return westward. I was overjoyed when the boy agreed to continue travelling with us. I had become quite fond of his company. A farewell would have been a lonely occasion._
 
 Excerpt from _My History, Memoirs of a Historian_
 
