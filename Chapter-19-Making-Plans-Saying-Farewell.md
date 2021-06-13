@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Chapter 19 - Making Plans, Saying Farewell
-permalink: /novel/18/
+permalink: /novel/19/
 comments: true
 ---
 
