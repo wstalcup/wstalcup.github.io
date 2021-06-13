@@ -31,3 +31,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 16 - The Destination of the Wind](/novel/16/)   
 [Chapter 17 - Welcome to Whitebrook](/novel/17/)    
 [Chapter 18 - The Council's Whims](/novel/18/)     
+[Chapter 19 - Making Plans, Saying Farewell](/novel/19/)     
