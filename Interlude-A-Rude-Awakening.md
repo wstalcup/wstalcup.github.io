@@ -26,6 +26,7 @@ Jackdaw gnawed on his lip as he thought over the circumstances. Those who rememb
 
 “We fight,” Jackdaw confirmed, feigning confidence. He was the head of the Heartwood clan, but he knew better than any other that his position came more from his mother’s influence than the clan’s trust in him. With a shake of his head, he dismissed the thought. That did not matter. He would not sit and wait for his clan to wither under the whips of the Fireglass. Not while he still breathed.
 
+-----
 
 He found his mother after the midday meal. They were herded into a fenced off area like livestock, given a gruel made from whatever the children and elders could forage in the forest at the foot of the mountain. It tasted vile, but he ate eagerly. It was not the cooks’ fault that they were given little more than a cauldron and a spoon and were expected to feed the entirety of the clan. Nor could he justify skipping a meal when his days were filled with the backbreaking labor of pulling iron from the earth. His hands ached from swinging a pick, and he had a persistent cough from constantly inhaling bits of stone and dust in the mineshafts. Normally, he would ask his mother to heal him. As it was, he could not do it.
 
