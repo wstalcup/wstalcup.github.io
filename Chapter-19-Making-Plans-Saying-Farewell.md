@@ -253,7 +253,7 @@ Sycamore gave a simple wave to the man, and turned to leave the estate. He set h
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/interlude/)
 
 [Table of Contents](/novel/)
 
