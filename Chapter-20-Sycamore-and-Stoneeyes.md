@@ -185,7 +185,7 @@ _Finally, you see reason,_ The Magus sent, ¬_Now, tell me what you know of the 
 
 When he was not arguing with the Magus, Sycamore spent his time practicing his Speaking. His outburst in the council meeting had shown his growth, but if he wished for his abilities to play an impact in their assault on the Fireglass camp, he would need to push his skills even further. To that end, his days were filled with a constant gusting of wind around him as he used whatever energy he could muster to pull more and more strength from the wind, working himself until exhaustion every night.
 
-Finally, after four and a half days of discussion, arguing, and endless practice, a sea of tents came into view. They’d veered north off the West Road a day earlier, cutting the corner of Whitebrook on their way to Rocky Ford. Sycamore was drained from the travel, but could not help but smile when he saw the military encampment surrounding the town. He’d made it in time.
+Finally, after four and a half days of discussion, practice, and endless walking, a sea of tents came into view. They’d veered north off the West Road a day earlier, cutting the corner of Whitebrook on their way to Rocky Ford. Sycamore was drained from the travel, but could not help but smile when he saw the military encampment surrounding the town. He’d made it in time.
 
 
 -----
