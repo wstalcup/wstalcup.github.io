@@ -5,7 +5,7 @@ permalink: /novel/20/
 comments: true
 ---
 
-_The boy had many strange moods. He would often giggle to himself, or frown at nothing in particular. He seemed distracted by silence, constantly shifting his focus at nothing in particular. It was odd, to observe him. But, then, I suppose if you watch anyone long enough their neurosis will reveal itself._
+_The boy had many strange moods. He would often giggle to himself, or frown at nothing in particular. He seemed distracted by silence, constantly shifting his focus without reason. It was odd, to observe him. But, then, I suppose if you watch anyone long enough, their neurosis will reveal itself._
 
 An excerpt from _My History, Memoirs of a Historian_
 
