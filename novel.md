@@ -33,3 +33,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 18 - The Council's Whims](/novel/18/)     
 [Chapter 19 - Making Plans, Saying Farewell](/novel/19/)    
 [Interlude - A Rude Awakening](/novel/interlude/)    
+[Chapter 20 - Sycamore and Stoneeyes](/novel/20/)     
