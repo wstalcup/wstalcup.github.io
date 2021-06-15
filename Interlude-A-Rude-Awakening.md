@@ -98,7 +98,7 @@ Jackdaw waited a long moment before speaking. His mind racing past a thousand me
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/20)
 
 [Table of Contents](/novel/)
 
