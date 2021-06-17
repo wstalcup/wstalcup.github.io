@@ -190,7 +190,7 @@ Finally, after four and a half days of discussion, practice, and endless walking
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/21/)
 
 [Table of Contents](/novel/)
 
