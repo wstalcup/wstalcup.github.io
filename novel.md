@@ -34,3 +34,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 19 - Making Plans, Saying Farewell](/novel/19/)    
 [Interlude - A Rude Awakening](/novel/interlude/)    
 [Chapter 20 - Sycamore and Stoneeyes](/novel/20/)     
+[Chapter 21 - The Heartwood Auxiliares](/novel/21/)      
