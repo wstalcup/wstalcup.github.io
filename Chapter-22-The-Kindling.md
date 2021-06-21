@@ -30,7 +30,7 @@ With a few rough strikes, Sycamore pounded the wooden stake into the ground. He 
 
 “Pa always said that half of the effort of chores was finding the easiest one to do. And I knew from yesterday that there’s a shortage on spades,” Pike said, “Besides, without Sprout, here, I’d not be halfway done.”
 
-“Happy to be of service,” Sycamore said as he sat down in a heap next to Pike. It was the second evening of their northward march and Sycamore had already grown sick of not having anything to do. His attendants refused any offer for help, so he found himself looking for work among his friends.
+“Happy to be of service,” Sycamore said as he sat down in a heap next to Pike. It was the second evening of their northward march and Sycamore had already grown sick of not having anything to do. It would be two more days before the other Heartwood folk and he split off, and he did not have the patience to idle away two move evenings. His attendants refused any offer for help, so he found himself looking for work among his friends.
 
 “Pike, quit lounging and help Lupin, or I’ll tan your hide,” Marrow barked as he and Granite joined them after pitching their own tent.
 
@@ -82,7 +82,7 @@ With a frown, Sycamore nodded. He turned to say goodbye to his friends, but Pike
 
 _What do you think this meeting’s about, that there was such a need for urgency._ Sycamore asked as he set off towards the center of the camp at a brisk pace.
 
-_Do not forget the purpose of this army, Sycamore. This is no simple stroll on the countryside._ Sycamore swallowed, picking up his pace a bit as violent possibilities danced in his brain. He thought back to Marrow’s words. A burst of action, sudden and bloody.
+_Do not forget the purpose of this army, Sycamore. This is no simple stroll on the countryside._ Sycamore swallowed, picking up his pace a bit as violent possibilities danced in his brain. He had expected, had hoped that the army would avoid battle until they left to rescue their clan. But if the Magus was right, and battle was to come, they would do their duty as auxiliaries of the army. His pulse quickened as he thought back to Marrow’s words. A burst of action, sudden and bloody.
 
 ------
 
