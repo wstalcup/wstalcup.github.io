@@ -35,3 +35,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Interlude - A Rude Awakening](/novel/interlude/)    
 [Chapter 20 - Sycamore and Stoneeyes](/novel/20/)     
 [Chapter 21 - The Heartwood Auxiliares](/novel/21/)      
+[Chapter 22 - The Kindling](/novel/22/)     
