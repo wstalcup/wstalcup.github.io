@@ -140,7 +140,7 @@ Sycamore thought back to his anger at Councilman Lode. At the time, it had been 
 
 _Do not just stand there like a mute,_ He sent, _Follow Sister Quartz’s orders, lest she regret trusting you._ Sycamore blinked a few times, trying to recall what she’d said before rushing off. That was it, he had to find Lady Marigold and learn where they were to position. He looked to Ashroot and Ivory for a moment. They stared at him petulantly, but Sister Quartz’s words held their tongue.
 
-With an awkward nod, Sycamore said, “Let’s be off then.” He turned to search for Lady Marigold, and found it quickly. They’d traveled lightly in the night, leaving their supply train under light guard, but still some tables had been hauled to organize a command post. The General stood there, surrounded by frantic aids as she organized the army for the morning battle.
+With an awkward nod, Sycamore said, “Let’s be off then.” He turned to search for Lady Marigold, and quickly found her. They’d traveled lightly in the night, leaving their supply train under light guard, but still some tables had been hauled to organize a command post. The General stood there, surrounded by frantic aids as she organized the army for the morning battle.
 
 Sycamore joined the queue of people waiting to speak to her with the other speakers, and after a moment he approached her command table. There was a field map, roughly sketched of the village and its surrounding features, a dozen wooden markers spread across. He took a moment to glance it over before speaking up, “General Marigold, I was told to get orders from you.”
 
