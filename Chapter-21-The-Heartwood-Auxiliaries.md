@@ -219,7 +219,7 @@ There was a final cheer, and marching orders went up. In short order, the army m
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/22/)
 
 [Table of Contents](/novel/)
 
