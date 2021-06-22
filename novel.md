@@ -10,7 +10,7 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 
 #### Volume 1 - Fire on the Wind
 
-![Map](https://wstalcup.github.io/images/fire%20on%20the%20wind.png)
+![Map](https://wstalcup.github.io/images/fire%20on%20the%20wind.jpg)
 
 [Prologue - The Crimes of the Magus](/novel/prologue/)  
 [Chapter 1 - Hunting for Purpose](/novel/1/)  
