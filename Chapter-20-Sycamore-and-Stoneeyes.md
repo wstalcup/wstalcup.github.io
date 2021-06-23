@@ -115,13 +115,13 @@ _I see_, Sycamore said through his mind. He blinked, surprised by how natural it
 
 When he’d drank his fill, he rose to his feet. _Magus_, he sent, _When the contract formed, I saw-_
 
-_I imagine a mirror of my own visions of you, a summary of my life, old memories. You must have questions, but they are for another time, when we’ve resolved this business of the Fireglass. I find myself increasingly motivated to help you after seeing your history.¬_
+_I imagine a mirror of my own visions of you, a summary of my life, old memories. You must have questions, but they are for another time, when we’ve resolved this business of the Fireglass. I find myself increasingly motivated to help you after seeing your history._
 
 Sycamore flushed at the thought that the Magus saw his past. What had he seen? A pitiful boy, bullied for his weakness?
 
 _Look at your soul_, the Magus sent, cutting off Sycamore’s self-loathing. With a nod, Sycamore reached inward with his Healer’s Touch. His brows furrowed as he examined the changes in his essence. On the surface, his soul looked much the same, a pulsing ball of golden energy with dozens of tendrils looping off it like string. Within, though, he could see a change. Where his soul, before, shined brightly in a continuous color, there was now a spot of discoloration, a pocket of different energy, writhing like a boiling yolk in the center of his soul.
 
-_It seems to be trying to break free,_ Sycamore sent, ¬_Like a worm trying to burrow to the surface._
+_It seems to be trying to break free,_ Sycamore sent, _Like a worm trying to burrow to the surface._
 
 _If my research is correct, that should settle down as the days pass, and the contract should more fully integrate itself into our souls. Thankfully, you did a respectable job of maintaining that connection, and there should be no risk of the contract breaking suddenly before things have calmed down._
 
@@ -129,7 +129,7 @@ _I imagine I don’t wish to know the consequences if that were to happen._ Syca
 
 _You don’t._ Sent the Magus, a shudder in his voice.
 
-Sycamore was about to complain about how the Magus had failed to warn him about these dangers when his stomach growled. He realized how hungry he was. Grabbing a bit of his remaining rations from his bag – some hardtack mostly crushed from his rough travels to the Magus – he sent, ¬_I’m hungrier than I expected. How long do you think we were out?_ He noted while gnawing on the bread that it was quite convenient to be able to talk and eat at the same time.
+Sycamore was about to complain about how the Magus had failed to warn him about these dangers when his stomach growled. He realized how hungry he was. Grabbing a bit of his remaining rations from his bag – some hardtack mostly crushed from his rough travels to the Magus – he sent, _I’m hungrier than I expected. How long do you think we were out?_ He noted while gnawing on the bread that it was quite convenient to be able to talk and eat at the same time.
 
 _I believe I woke up shortly after the contract was formed, perhaps because of my greater experience with soul magic._ There was a pause _You were out for two days._
 
@@ -139,7 +139,7 @@ _Calm yourself,_ Sent the Magus, _A few seconds will not make a difference._ Syc
 
 _This one will not result in me passing out for two days, will it?_ 
 
-¬_It will only take a moment. Behind you, on the shelf, there’s a wooden box. You’ll find a necklace in it, a metal chain with a red stone._
+_It will only take a moment. Behind you, on the shelf, there’s a wooden box. You’ll find a necklace in it, a metal chain with a red stone._
 
 When his waterskin was full, he set it aside, following the Magus’s instructions to a small wooden jewelry box. Inside there was a host of rings, bracelets, and ornaments, and Sycamore’s eyes widened at the obvious wealth. After a moment of shock, though, he searched through the box until he found what the Magus asked after. He pulled the necklace from the box, a long silver chain with a red gem affixed in some metal clasps.
 
@@ -147,9 +147,9 @@ _If this is some sort of gift for me, I must remind you that I am in quite a rus
 
 _Silence. Pry out the gem from the necklace, but be careful not to break the clasps._ Sycamore pulled his skinning knife from his belt, using the blade to carefully bend back the bits of metal that affixed the red stone in place on the pendant. When it came free, he carefully dropped it back into the jewelry box, placing the wooden container back on the shelf.
 
-_Now,¬_ The Magus continued, ¬_Take a piece of one of the corners of my Soul Stone and set it in the pendant where the gem was. The stone should chip easily with your knife._ Sycamore approached the marble altar, slapping the back of his knife at one of the corners of the odd warm stone. He was surprised when a chunk of stone almost immediately broke free. He rolled the bit of stone between his fingers for a moment, feeling its strangeness, before carefully clasping it into the pendant.
+_Now,_ The Magus continued, _Take a piece of one of the corners of my Soul Stone and set it in the pendant where the gem was. The stone should chip easily with your knife._ Sycamore approached the marble altar, slapping the back of his knife at one of the corners of the odd warm stone. He was surprised when a chunk of stone almost immediately broke free. He rolled the bit of stone between his fingers for a moment, feeling its strangeness, before carefully clasping it into the pendant.
 
-¬_What’s this for?_ He sent. The rock was an awkward shape for the pendant, but without too much effort he was able to bend the soft metal until it fit well enough.
+_What’s this for?_ He sent. The rock was an awkward shape for the pendant, but without too much effort he was able to bend the soft metal until it fit well enough.
 
 _I was worried that distance might weaken our connection. While you were sleeping, I thought up a solution. The soul is immutable, and anchored to all of my Soul Stone, here. So if you take a bit of it with you, it should be as if you are always here, within my library. In theory._
 
@@ -179,9 +179,9 @@ _Perhaps I could, with the right supplies and a year’s time. But we have mere 
 
 Sycamore was silent for a while, ideology warring with need in his brain as he stared down at the dirt path they walked over. Eventually, need prevailed.
 
-_Fine,_ He sent, ¬_I’ll consider it. But only as a last resort. In any other situation, I cannot justify the risks._
+_Fine,_ He sent, _I’ll consider it. But only as a last resort. In any other situation, I cannot justify the risks._
 
-_Finally, you see reason,_ The Magus sent, ¬_Now, tell me what you know of the Fireglass encampment. I have seen my fair share of wars, and perhaps I can be of assistance when it comes to strategy._
+_Finally, you see reason,_ The Magus sent, _Now, tell me what you know of the Fireglass encampment. I have seen my fair share of wars, and perhaps I can be of assistance when it comes to strategy._
 
 When he was not arguing with the Magus, Sycamore spent his time practicing his Speaking. His outburst in the council meeting had shown his growth, but if he wished for his abilities to play an impact in their assault on the Fireglass camp, he would need to push his skills even further. To that end, his days were filled with a constant gusting of wind around him as he used whatever energy he could muster to pull more and more strength from the wind, working himself until exhaustion every night.
 
