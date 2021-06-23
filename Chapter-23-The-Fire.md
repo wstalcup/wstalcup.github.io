@@ -79,7 +79,7 @@ _The enemy archers have rejoined their forces,_ The Magus sent, processing what 
 
 Sycamore gritted his teeth. He was already straining himself with his gusts of wind. To keep it up persistently would push him to his limit. 
 
-_I’m going to throw myself into this,_ He told the Magus, ¬_I’ll stay on the rear rank, but keep watch to make sure I don’t accidentally march into the fray._ He did not wait for a response, and, with a deep, shaking breath, leaned into his speaking.
+_I’m going to throw myself into this,_ He told the Magus, _I’ll stay on the rear rank, but keep watch to make sure I don’t accidentally march into the fray._ He did not wait for a response, and, with a deep, shaking breath, leaned into his speaking.
 
 The wind came as a squall behind him as the threw the weight of his strength at it, used whatever poise and power he had to lead the wind forward and push aside whatever the Fireglass threw at them. He bit at his lips from the strain of it, tasting blood as his head pulsed with an exhausted pain. He had never used his Speaking like this, not with such strength, not for so long. But still, he continued to push forward and force the Fireglass arrows away from them.
 
