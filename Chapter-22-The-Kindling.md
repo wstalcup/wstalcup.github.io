@@ -166,7 +166,7 @@ Suddenly, he heard a loud horn, a chorus of shouts, and fourteen hundred pairs o
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/23/)
 
 [Table of Contents](/novel/)
 
