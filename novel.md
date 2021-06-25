@@ -37,3 +37,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 21 - The Heartwood Auxiliares](/novel/21/)      
 [Chapter 22 - The Kindling](/novel/22/)   
 [Chapter 23 - The Fire](/novel/23/)     
+[Chapter 24 - A Meal, a Gift, an Offer, and a Departure](/novel/24/)     
