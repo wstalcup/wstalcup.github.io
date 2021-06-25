@@ -166,7 +166,7 @@ Lupin did not look at him as they walked, but he finally nodded, “They’re ju
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/24/)
 
 [Table of Contents](/novel/)
 
