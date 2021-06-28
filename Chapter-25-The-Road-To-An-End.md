@@ -13,7 +13,7 @@ An Excerpt from _My History, Memoirs of a Historian_
 
 Lupin caught the swing on the flat of his sword, easily deflecting the force to the side. With a retreating step, Perch attacked again, stabbing twice as she put some distance between her and her opponent. Seizing the momentum, Lupin batted her sword aside, stepping forward to aggressively test her defenses. She caught the first two swings, but on the third Lupin twisted the blade out of her hand with a deft movement.
 
-Disarmed, she raised her hands in surrender. Lupin smirked broadly at her before turning to Pike. “That’s three for me, and you’re up next, Woolhead.” Pike grumbled softly as he stepped up, clutching his favored spear and one hand and swinging the other in a stretch.
+Disarmed, she raised her hands in surrender. Lupin smirked broadly at her before turning to Pike. “That’s three for me, and you’re up next, Woolhead.” Pike grumbled softly as he stepped up, clutching his favored spear in one hand and swinging the other in a stretch.
 
 “He’s gotten better,” Perch said to Granite and Sycamore who sat nearby, watching the training.
 
