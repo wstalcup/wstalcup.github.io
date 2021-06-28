@@ -195,7 +195,7 @@ With a smile and a nod, she released him. They returned to the other Heartwood f
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/25/)
 
 [Table of Contents](/novel/)
 
