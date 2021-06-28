@@ -1,4 +1,3 @@
-
 ---
 layout: page
 title: Chapter 25 - The Road to an End
