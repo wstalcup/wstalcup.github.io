@@ -9,6 +9,8 @@ _As we drew closer to the borders of the kingdoms, there was a change in attitud
 
 An excerpt from _My History, Memoirs of a Historian_
 
+-----
+
 When Lupin and Lotus were calm enough to talk, enough time had passed that Sycamore began to worry whether they’d have the time to get an answer to their questions.
 
 “Lupin,” He said with soft insistence.
