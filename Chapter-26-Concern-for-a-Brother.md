@@ -5,7 +5,7 @@ permalink: /novel/26/
 comments: true
 ---
 
-_As we drew closer to the borders of the kingdoms, there was a change in attitude in the boy. He seemed to grow anxious, nervous in a way I hadn’t expected. When I asked him about his mood change, he answered that he was worried he would be treated as an outcast for his upbringing. It was a humorous reminder of the boys youth, and I assured him that he did not have to reveal his Halfling upbringing if he did not want to, and if he did, it would only make him unique. He smiled at that, saying that after so much preparation and anticipation, it would be a shame if things went poorly._
+_As we drew closer to the borders of the kingdoms, there was a change in attitude in the boy. He seemed to grow anxious, nervous in a way I hadn’t expected. When I asked him about his mood change, he answered that he was worried he would be treated as an outcast for his upbringing. It was a humorous reminder of the boy's youth, and I assured him that he did not have to reveal his Halfling upbringing if he did not want to, and if he did, it would only make him unique. He smiled at that, saying that after so much preparation and anticipation, it would be a shame if things went poorly._
 
 An excerpt from _My History, Memoirs of a Historian_
 
