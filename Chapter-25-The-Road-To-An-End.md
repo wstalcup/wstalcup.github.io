@@ -209,7 +209,7 @@ Juniper came up on them with a smile on her face. “We have an hour,” She sai
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/26/)
 
 [Table of Contents](/novel/)
 
