@@ -209,7 +209,7 @@ Sycamore gritted his teeth, grasping the wind as a mirthless grin formed on his 
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/28/)
 
 [Table of Contents](/novel/)
 
