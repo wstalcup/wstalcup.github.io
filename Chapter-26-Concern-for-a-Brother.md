@@ -216,7 +216,7 @@ Sycamore huffed a sigh, but he was too anxious to protest over his healing and d
 
 -----
 
-Next Chapter
+[Next Chapter](/novel/27/)
 
 [Table of Contents](/novel/)
 
