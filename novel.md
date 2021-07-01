@@ -41,3 +41,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 25 - The Road to an End](/novel/25/)      
 [Chapter 26 - Concern for a Brother](/novel/26/)       
 [Chapter 27 - Reunions in the Dark](/novel/27/)      
+[Chapter 28 - The Storm Priestess](/novel/28/)    
