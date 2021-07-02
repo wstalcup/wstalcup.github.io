@@ -4,11 +4,12 @@ title: Novel
 permalink: /novel/
 ---
 
-Table of contents for my ongoing high fantasy novel, following the adventures of Sycamore.
+Table of contents for my ongoing high fantasy series, The Chronicle of hte Soul Mage, following the adventures of Sycamore.
 
-### Table of Contents
+### The Chronicle of the Soul Mage - Table of Contents
 
 #### Volume 1 - Fire on the Wind
+
 
 ![Map](https://wstalcup.github.io/images/fire%20on%20the%20wind.jpg)
 
