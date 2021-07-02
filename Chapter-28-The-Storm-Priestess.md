@@ -281,7 +281,7 @@ With that, her eyes drifted closed, never to open again. Sycamore’s cried, his
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/29/)
 
 [Table of Contents](/novel/)
 
