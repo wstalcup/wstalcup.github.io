@@ -50,7 +50,7 @@ _No. He’s exceptional, even by Kingdoms standards._ Sycamore swallowed nervous
 
 “She’s a wanderer, I travel with more importance,” The tall man said with a wink, “You see, I’m a historian.”
 
-#### End – Fire on the Wind: Volume 1 of the Chronicle of the Soul Mage
+#### End – Fire on the Wind: Volume 1 of The Chronicle of the Soul Mage
 
 ------
 
