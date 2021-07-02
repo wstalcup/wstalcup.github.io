@@ -43,4 +43,4 @@ Table of contents for my ongoing high fantasy novel, following the adventures of
 [Chapter 27 - Reunions in the Dark](/novel/27/)      
 [Chapter 28 - The Storm Priestess](/novel/28/)   
 [Chapter 29 - A New Home, a New Journey](/novel/29/)     
-[Epilogue - Into the West](/novel/epilogue/)    
+[Epilogue - Into the West](/novel/epilogue/)       
