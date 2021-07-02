@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Chapter 28 - The Storm Priestess
-permalink: /novel/28/
+title: Chapter 29 - A New Home, A New Journey
+permalink: /novel/29/
 comments: true
 ---
 
