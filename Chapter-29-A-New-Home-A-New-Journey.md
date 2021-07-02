@@ -202,7 +202,7 @@ A few final hugs and he was off, leaving his village behind to the unknown west.
 
 ------
 
-Next Chapter
+[Next Chapter](/novel/epilogue/)
 
 [Table of Contents](/novel/)
 
